@@ -1,0 +1,41 @@
+---
+title: "Rocks"
+artist: "Dry Cleaning"
+tags: "Dry Cleaning"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+No need for life story, no need for haircut
+A blob for America
+A blob
+You confide in the wrong people every time
+
+Feels bad
+Rocks in my dreams
+Use some bread to dip
+I want you, your boots...
+Rocks are in my dreams
+
+I want to overwhelm you
+But the sequins and gems are really scratching me
+I kind of changed
+Uh uh oh, for real
+The wind is blowing the planes around
+
+Rocks in my dreams
+Rocks are in my dreams
+
+Bloody big houses everywhere, split up into flats
+And so many evil trees
+And they belong to all of us
+So many evil trees
+I'm sick
+Let's check Jean's Ouija board
+Crying doesn't always mean someone's sad, laughter doesn't always mean...
+
+Rocks in my dreams
+Boat trip burnt my eyes
+Why?
+Rocks are in my dreams
+Rocks

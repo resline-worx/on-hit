@@ -1,0 +1,69 @@
+---
+title: "Numb"
+artist: "Disturbed"
+tags: "Disturbed"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Bleeding now I'm
+Crying out I'm
+Falling down and I'm
+Bleeding now I'm
+Bleeding now I'm
+Crying out and I'm
+Falling down and I'm
+Bleeding now
+
+Bleeding now I'm
+Crying out I'm
+Falling down and I'm
+Feeling nothing like
+Laughing now I'm
+Stopping now I'm
+Reaching out and I'm
+Feeling nothing
+
+Yeah, you've created a rift within me
+Now, there have been several complications
+That have left me feeling nothing
+I might say, you were wrong to take it from me
+Left me feeling nothing
+
+Crawling now I'm
+Beaten down I'm
+Tortured now and I'm
+Feeling nothing like
+Hunting now I'm
+Stalking now I'm
+Reaching out and I'm
+Killing nothing
+
+Yeah, you've created a rift within me
+Now, there have been several complications
+That have left me feeling nothing
+I might say, you were wrong to take it from me
+Left me feeling nothing
+
+Ooh, I can feel you ripping and tearing
+Feeding and growing inside of me
+Ripping and tearing and
+Feeding and growing inside of me
+
+I want this, more than you know
+I need this, give it back to me
+
+You've created a rift within me
+You are the cause of these horrid complications
+That are ripping and tearing and feeding and growing inside of me
+Yeah, you've created a rift within me
+Now, there have been several complications
+That are ripping, tearing
+Feeding, growing
+Ripping, tearing
+Ripping and tearing and feeding and growing inside of me
+
+I want this
+More than you know
+I need this
+Give it back to me

@@ -1,0 +1,33 @@
+---
+title: "Where We Start"
+artist: "David Gilmour"
+tags: "David Gilmour"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Where we start is where we end
+We step out sweetly, with nothing planned
+Along by the river we feed bread to the swans
+And then over the footbridge to the Woods beyond
+
+We walk ourselves weary, you and I
+There's just this moment
+
+I light a campfire away from the path
+We lie in the bluebells, a woodpecker laughs
+
+Time passes slowly our hearts entwined
+All of the dark times left behind
+
+The day is done
+The sun sinks low
+We fold up the blanket, it's time to go
+
+We walk ourselves weary, arm in arm
+Back through the twilight
+Home again, we're home again
+
+We waltz in the moonlight and the embers glow
+So much behind us
+Still far to go, still far to go

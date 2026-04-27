@@ -1,0 +1,61 @@
+---
+title: "OMW"
+artist: "PARTYNEXTDOOR & Drake"
+tags: "Drake"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+[PARTYNEXTDOOR:]
+Call me from the condo, I'm picking you up
+You and I know, I know you deserve it
+If I brought your birthday, you turn it up (Oh, yeah, oh, yeah)
+Last week, you gave me the sickest threesome (Oh yeah)
+This week, you gave me the sickest head
+Last night, you tried to blow my mind (Ooh, yeah)
+And tonight, you tried to do it again, oh, woah
+
+My best friend, my shawty
+Oh, woah
+Hey, your mind and your body is outta control
+The fuck was they thinking? You on a roll
+You hit the splits and get naked, girl, you're honor roll
+You payin' the rent these days and the groceries, woah
+Luckily, I got rich after that
+Luckily, you stole my bitch after that
+Luckily, you went platinum like plaques
+
+Call me from the condo, I'm picking you up
+You and I know, I know you deserve it
+If I brought your birthday, you turn it up (Oh, yeah, oh, yeah)
+Last week, you gave me the sickest threesome (Oh yeah)
+This week, you gave me the sickest head
+Last night, you tried to blow my mind (Ooh, yeah)
+And tonight, you tried to do it again, oh, woah
+
+[Drake:]
+Your mind and your body is outta control (Yeah)
+The fuck was they thinking? You vulnerable, yeah (Okay)
+You got them Liz Taylor diamonds and a heart of gold (Yeah)
+You got that big ol' crib now and the sign says so (Ayy)
+We're face to face in the crowd
+Laughin' over shots, people eyein' us down
+Same night, word is goin' 'round town
+That kind of word can really get around
+That can make a lost love come unfound
+Your ex needs to turn that frown upside down
+Smile and keep it pushin' before it goes south
+Can you come home with me tonight, are you allowed?
+I know you got the kids at the house
+Pay the nanny double and come roll with the owl
+You'll be back in time to make 'em breakfast, no doubt
+Just stay the night with me, get nasty
+
+[PARTYNEXTDOOR:]
+Call me from the condo, I'm picking you up
+You and I know, I know you deserve it
+If I brought your birthday, you turn it up (Oh, yeah, oh, yeah)
+Last week, you gave me the sickest threesome (Oh yeah)
+This week, you gave me the sickest head
+Last night, you tried to blow my mind (Ooh, yeah)
+And tonight, you tried to do it again, oh, woah

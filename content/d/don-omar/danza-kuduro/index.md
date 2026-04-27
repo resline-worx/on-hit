@@ -1,0 +1,98 @@
+---
+title: "Danza Kuduro"
+artist: "Don Omar"
+tags: "Don Omar"
+featuring: "Lucenzo & Tiësto"
+language: "Lyrics"
+draft: false
+---
+A&X
+El Orfanato
+¡Danza Kuduro!
+(Plop, plop, plop, plop, plop, plop, plop)
+¡Lucenzo!
+(El Orfanato)
+¡El Rey!
+
+La mano arriba, cintura sola
+Da media vuelta, danza kuduro
+No te canse' ahora que esto solo empieza
+Mueve la cabeza, danza kuduro
+La mano arriba, cintura sola
+Da media vuelta, danza kuduro
+No te canse' ahora que esto solo empieza
+Mueve la cabeza, danza kuduro
+
+¿Quién puede domar la fuerza del mal
+Que se mete por tu' vena'? (¡Don!)
+Lo caliente del sol que se te metió
+Y no te deja quieta, nena (¡Toma, toma!)
+¿Quién puede parar eso que al bailar
+Descontrola tu' cadera'? (Sexy!)
+Y ese fuego que quema por dentro y lento
+Te convierte en fiera (Rah)
+See Don Omar Live
+Get tickets as low as $112
+
+Con la mano arriba, cintura sola
+Da media vuelta y sacude duro
+No te quite' ahora que esto solo empieza
+Mueve la cabeza y sacude duro (¡Don!)
+
+Mexe kuduro
+Balança que é uma loucura
+Morena, vem a meu lado
+Ninguém vai ficar parado
+Quero ver mexer kuduro
+Balança que é uma loucura
+Morena, vem a meu lado
+Ninguém vai ficar parado, oh-oh-oh
+
+Oi, oi, oi
+Oi, oi, oi, oi
+É pa' quebrar kuduro
+Vamos dançar kuduro
+Oi, oi, oi
+Oi, oi, oi, oi
+Seja morena ou loira
+Vem balançar kuduro
+Oi, oi, oi
+
+La mano arriba, cintura sola
+Da media vuelta, danza kuduro
+No te canse' ahora que esto solo empieza
+Mueve la cabeza, danza kuduro
+La mano arriba, cintura sola
+Da media vuelta, danza kuduro
+No te canse' ahora que esto solo empieza
+Mueve la cabeza, danza kuduro
+
+Balança que é uma loucura
+Morena, vem a meu lado
+Ninguém vai ficar parado
+Quero ver mexer kuduro
+Balança que é uma loucura
+Morena, vem a meu lado
+Ninguém vai ficar parado
+
+Oi, oi, oi
+Oi, oi, oi, oi
+É pa' quebrar kuduro
+Vamos dançar kuduro
+Oi, oi, oi
+Oi, oi, oi, oi
+Seja morena ou loira
+Vem balançar kuduro
+Oi, oi, oi
+¡El Orfanato!
+
+La mano arriba (Vai, vai; vuelta), cintura sola (Vai, vai; vuelta)
+Da media vuelta (Vai, vai; vuelta), danza kuduro (Vai, vai; vuelta)
+No te canse' ahora (Vai, vai; vuelta) que esto solo empieza (Vai, vai; vuelta)
+Mueve la cabeza (Vai, vai; vuelta), danza kuduro (Vai, vai; vuelta)
+La mano arriba, cintura sola
+Da media vuelta, danza kuduro
+No te canse' ahora que esto solo empieza
+Mueve la cabeza, danza kuduro
+
+A&X (A&X)

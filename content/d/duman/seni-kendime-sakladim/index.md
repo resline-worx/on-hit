@@ -1,0 +1,42 @@
+---
+title: "Seni Kendime Sakladım"
+artist: "Duman"
+tags: "Duman"
+featuring: ""
+language: "şarkı sözleri"
+draft: false
+---
+Onu bunu bilmem, anlamam
+Kim ne derse desin lan!
+Arkanızdan yol almam
+Onlar ister alınsın
+İsterlerse darılsın
+
+Onu bunu bilmem, karışmam
+Kim ne derse desin lan!
+Ben alınıp satılmam
+Onlar ister alınsın
+İsterlerse satılsın
+
+Seni kendime sakladım
+Hepsini ben hesapladım
+Seni kendime sakladım
+Hepsini ben hesapladım
+
+Onu bunu bilmem, anlamam
+Kim ne derse desin lan!
+İşte meydan, işte can
+Onlar ister kapışsın
+İsterlerse barışsın
+
+Seni kendime sakladım
+Hepsini ben hesapladım
+Seni kendime sakladım
+Hepsini ben hesapladım
+
+Seni kendime sakladım
+
+Seni kendime sakladım
+Hepsini ben hesapladım
+Seni kendime sakladım
+Hepsini ben hesapladım

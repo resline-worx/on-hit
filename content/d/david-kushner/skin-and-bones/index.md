@@ -1,0 +1,50 @@
+---
+title: "Skin And Bones"
+artist: "David Kushner"
+tags: "David Kushner"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+I fantasize to feel you like a bullet
+And all your layers to the fullest
+But the heavens won't condone it, mm
+You deceivin', wayward woman
+You're a false prophet at the pulpit
+The condition of your soul is erodin'
+
+Wrap me in your skin and bones, yeah, you're electrical
+Oh, I'm gonna lose control, yeah, as you pull me close
+Wrap me in your skin and bones, yeah, you're electrical
+Oh, I'm gonna lose control
+
+As your flatter talk shivers down my spine
+I hear the Holy One exposin' all the lies
+Lord, forgive me, I know my flesh needs to die
+She has the lips red as cherry wine
+A poisonous kiss, she's part of the swine
+My salvation won't be sacrificed
+
+Wrap me in your skin and bones, yeah, you're electrical
+Oh, I'm gonna lose control, yeah, as you pull me close
+Wrap me in your skin and bones, yeah, you're electrical
+Oh, I'm gonna lose control
+
+But I don't wanna stop, yeah, I just need to see
+If your love's the truth or the spirit of deceit
+No, I don't wanna talk, baby, give it all to me
+There's honey drippin' from your teeth
+
+Wrap me in your skin and bones, yeah, you're electrical
+Oh, I'm gonna lose control, yeah, as you pull me close
+Wrap me in your skin and bones, yeah, you're electrical
+Oh, I'm gonna lose control
+Wrap me in your skin and bones, yeah, you're electrical
+Oh, I'm gonna lose control, yeah, as you pull me close
+Wrap me in your skin and bones, yeah, you're electrical
+Oh, I'm gonna lose control
+
+(Wrap me in your skin and bones, yeah, you're electrical) But I don't wanna stop, yeah, I just need to see
+(Oh, I'm gonna lose control, yeah, as you pull me close) If your love's the truth or the spirit of deceit
+(Wrap me in your skin and bones, yeah, you're electrical) No, I don't wanna talk, baby, give it all to me
+(Oh, I'm gonna lose control) There's honey drippin' from your teeth

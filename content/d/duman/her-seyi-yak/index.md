@@ -1,0 +1,41 @@
+---
+title: "Her Şeyi Yak"
+artist: "Duman"
+tags: "Duman"
+featuring: ""
+language: "şarkı sözleri"
+draft: false
+---
+Beni yak kendini yak her şeyi yak
+Bir kıvılcım yeter ben hazırım bak
+İster öp okşa istersen öldür
+Aşk için ölmeli aşk o zaman aşk
+Aşk için ölmeli aşk o zaman aşk
+Seni içime çektim bir nefeste
+Yüreğim tutuklu göğsüm kafeste
+Yanacağız ikimizde ateşte
+Bir kıvılcım yeter hazırım bak
+Aşk için ölmeli aşk o zaman aşk
+
+Allahım allahım ateşlere yürüyorum
+Allahım acı ile aşk ile büyüyorum
+
+Beni yor hasretinle sevginle yor
+Sevgisizlik ayrılıktan daha zor
+Dilediğin kadar acıt canımı
+Varlığında yokluğunda yetmiyor
+Varlığında yokluğunda yetmiyor
+
+Allahım allahım ateşlere yürüyorum
+Allahım acı ile aşk ile büyüyorum
+
+Beni yak kendini yak her şeyi yak
+Bir kıvılcım yeter ben hazırım bak
+İster öp okşa istersen öldür
+Aşk için ölmeli aşk o zaman aşk
+Aşk için ölmeli aşk o zaman aşk
+Seni içime çektim bir nefeste
+Yüreğim tutuklu göğsüm kafeste
+Yanacağız ikimizde ateşte
+Bir kıvılcım yeter hazırım bak
+Aşk için ölmeli aşk o zaman aşk

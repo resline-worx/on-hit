@@ -1,0 +1,84 @@
+---
+title: "God Of The Mind"
+artist: "Disturbed"
+tags: "Disturbed"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Na ha-nha
+
+Get in get in get in get into now
+Get in get into come take over me
+Get in get in get in get into now
+Get in get into come take over me
+Get in get in get in get into now
+Get in get into come take over me
+Get in get in get in get into now
+Get on get into like me
+
+Time, not having an easy time
+Never gonna have an easy time
+Given the run around to me
+I can feel it coming around again
+
+Time, a changing a wasting
+Come and get up in my face again this
+Time, given the run around to me
+
+And I'm not having an easy time
+Never having an easy
+You know this time it has never gone easy
+Time never having an easy
+You'll never meet another like me
+
+Get in get into like me like me
+Get in get into like me like me
+Get in get into lie to me like me
+Get into like me like
+
+Time, not having an easy time
+Never gonna have an easy time
+Given the run around to me
+I can feel it coming around again
+
+Time, a changing a wasting
+Come and get up in my face again this
+Time, given the run around to me
+
+And I'm not having an easy time
+Never having an easy
+You know this time it has never gone easy
+Time never having an easy
+You'll never meet another like me
+
+Get in get into like me like me
+Get in get into like me like me
+Get in get into lie to me like me
+Get into like me like
+
+Get ready
+
+Time never gonna die
+Never gonna give into me
+You want a deity like me
+You want a god
+But you're never gonna give into me
+You want a deity like me
+
+Time never gonna die
+Never gonna give into me
+You want a deity like me
+You want a god
+But you're never gonna give into me
+You want a deity like me
+
+Time, get it get it
+Time is just another god of the mind
+Time, get it get it
+Time is just another god of the mind
+
+Time, never having an easy
+You know this time it has never gone easy
+Time, never having an easy
+You'll never meet another like me

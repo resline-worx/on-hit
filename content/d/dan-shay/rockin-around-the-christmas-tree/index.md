@@ -1,0 +1,42 @@
+---
+title: "Rockin' Around The Christmas Tree"
+artist: "Dan + Shay"
+tags: "Dan + Shay"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+(originally by Brenda Lee)
+
+Oh
+
+Rockin' around the Christmas tree
+At the Christmas party hop
+Mistletoe hung where you can see
+Every couple tries to stop
+Rockin' around the Christmas tree
+Let the Christmas spirit ring
+Later, we'll have some pumpkin pie
+And we'll do some caroling
+
+You will get a sentimental feeling
+When you hear
+Voices singing, "Let's be jolly
+Deck the halls with boughs of holly"
+
+Rockin' around the Christmas tree
+Have a happy holiday
+Everyone's dancin' merrily
+In the new old-fashioned way
+
+Oh, yeah
+
+You will get a sentimental feeling
+When you hear
+Voices singing, "Let's be jolly
+Deck the halls with boughs of holly"
+
+Rockin' around the Christmas tree
+Have a happy holiday
+Everyone's dancin' merrily
+In the new old-fashioned way

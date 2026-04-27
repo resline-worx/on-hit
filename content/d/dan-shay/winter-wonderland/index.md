@@ -1,0 +1,42 @@
+---
+title: "Winter Wonderland"
+artist: "Dan + Shay"
+tags: "Dan + Shay"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+(originally by Guy Lombardo)
+
+Sleigh bells ring, are you listening?
+In the lane, snow is glistening
+A beautiful sight, we're happy tonight
+Walking in a winter wonderland
+Gone away is the bluebird
+Here to stay is a new bird
+He sings a love song as we go along
+Walking in a winter wonderland
+
+In the meadow, we can build a snowman
+We'll pretend that he is Parson Brown
+He'll say, "Are you married?" We'll say, "No man"
+But you can do the job when you're in town
+
+Later on (Later on), we'll conspire
+As we dream (As we dream) by the fire
+To face unafraid (Unafraid), the plans that we've made
+Walking in a winter wonderland
+Oh, walking, yeah, we are
+Ooh, walking in a winter wonderland
+
+In the meadow, we can build a snowman
+We'll pretend that he is Parson Brown
+He'll say, "Are you married?" We'll say, "No man"
+But you can do the job when you're in town
+
+Later on, we'll conspire
+As we dream by the fire
+To face unafraid all the plans that we've made
+Walking in a winter wonderland
+Walking in a winter wonderland
+Oh, we're walking in a winter wonderland

@@ -1,0 +1,58 @@
+---
+title: "HUH!"
+artist: "Doechii"
+tags: "Doechii"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Top on, yeah
+Give me top, uh-huh, yeah
+Give top, uh-huh, yeah
+He give me top, uh-huh, yeah
+Give me top, uh-huh, yeah
+
+5 a.m. Top Hill, okay
+New Richard Mille on my wrist, okay
+Top floor maid, that mean she paid
+500 bill for my meal, okay
+New car don't need gassin'
+I'm so ahead of this fashion
+500K on my wrist, okay
+5 a.m. Top Hill, okay
+
+Okay
+Niggas, let's face it, niggas too basic
+Niggas complacent, face it
+Niggas front page then shapeshift
+Niggas turn page, they changin', I'm gaugin'
+Niggas switch lanes, no face, no case
+Niggas switch states, new name, new face
+New car don't need gassin'
+I'm so ahead of this fashion
+
+Exactly
+Exactly
+Okay
+
+He want my stash, uh-huh
+He want my bag, uh-huh
+Shawty got thrashed, uh-huh
+She got ass (In the trunk)
+He want my bag, can't let him have it
+He want my bag, uh-huh
+Broke niggas spazzin', uh-huh
+The have and the haven'ts, uh-huh, huh
+
+5 a.m. Top Hill, okay
+New Richard Mille on my wrist, okay
+Top floor maid, that mean she paid
+500 bill for my meal, okay
+New car don't need gassin'
+I'm so ahead of this fashion
+500K on my wrist, okay
+5 a.m. Top Hill, okay
+
+Exactly
+Exactly
+Okay, okay, okay

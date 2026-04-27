@@ -1,0 +1,45 @@
+---
+title: "Winona"
+artist: "Deafheaven"
+tags: "Deafheaven"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+The signs of progress
+Combatting all destinies
+It's not for nothing that I impress
+On myself what I should be
+I know I need it
+No, there is no freedom
+There's a missing piece
+
+The howling energy
+Is a shining vacancy
+Thinking I'd survive with everything I was gaining
+Behind the curtain I was sinking
+With everything I'm supposed to be
+I'm waiting for the fall
+
+I've been dreaming of somewhere seeing
+Us close to the knives
+If I could have a morning
+To have a moment
+A silver lining
+I'd stick them in, twist them down, bury with ease
+
+Power bastard
+Pathetic master
+I'm reliving Saturn eating
+His flesh is everything of mine
+Power bastard
+Pathetic master
+I'm reliving Saturn eating
+His flesh is everything of mine
+
+You took it all and left me nothing
+Laid me in a hole
+For death to feed on
+You took it all and left me nothing
+Laid me in a hole
+For death to feed on

@@ -1,0 +1,101 @@
+---
+title: "Shout 2000"
+artist: "Disturbed"
+tags: "Disturbed"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+(originally by Tears For Fears)
+
+(Shout shout)
+Let it all out
+These are the things I can do without
+(Come on)
+I'm a-talking to you
+(So come on)
+
+(Shout shout)
+Let it all out
+These are the things I can do without
+Come on (Come get it on, come get it on)
+I'm a-talking to you
+(So come on) (Come get it on, come get it on)
+
+In violent times
+You shouldn't have to sell your soul
+In black and white
+They really really ought to know
+(Just don't know)
+Those one-track minds
+Who took you for a working whore
+Kiss them goodbye
+You shouldn't have to jump for joy
+(Jump jump jump jump jump)
+
+You shouldn't have to shout for joy
+Shout shout
+Let it all out
+These are the things I can do without
+Come on (Come get it on, come get it on)
+I'm a-talking to you
+(So come on) (Come get it on, come get it on)
+
+They give you life
+And in return you gave them hell
+As cold as ice(no bitch you're ice ice baby)
+I hope we live to tell the tale
+I hope we live to the tale
+
+Shout shout
+Let it all out
+These are the things I can do without
+Come on (Come get it on, come get it on)
+I'm a-talking to you
+(So come on)
+
+Will you never shout?
+Huh
+I feel as though I know you're never gonna let it all out
+Will you never shout?
+Huh
+I feel as though I know you're never gonna let it all out
+
+Will you never shout?
+Huh
+I feel as though I know you're never gonna let it all out
+Will you never shout?
+Huh
+I feel as though I know you're never gonna let it
+
+And when you've taken down your guard
+If I could change your mind
+I'd really love to break your heart
+(Break break break break break)
+
+I'd really love to break your heart
+
+Shout shout
+Let it all out
+These are the things I can do without
+Come on (Come get it on, come get it on)
+I'm a-talking to you
+So come on (Come get it on, come get it on)
+
+I'd really love to
+(Shout shout)
+Let it all out
+These are the things I can do without
+Come on
+I'm a-talking to you
+So come on
+
+Shout!
+Shout!
+
+Come on, le-let me shout, shout, let me
+Come on, le-let me shout, shout
+Shout!
+Come on, le-let me shout, shout, let me
+Come on, le-let me shout, shout
+Shout!

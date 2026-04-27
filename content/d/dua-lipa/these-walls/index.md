@@ -1,0 +1,74 @@
+---
+title: "These Walls"
+artist: "Dua Lipa"
+tags: "Dua Lipa"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Maybe we should switch careers
+'Cause, baby, you know no one beats our poker faces
+And when the night ends up in tears
+Wake up and we blame it all on being wasted
+
+Oh, this love is fading
+So much we're not saying
+
+But if these walls could talk
+(They'd say) "Enough"
+(They'd say) "Give up"
+If these walls could talk
+(They'd say) "You know"
+(They'd say) "You're fucked"
+It's not supposed to hurt this much
+Oh, if these walls could talk
+They'd tell us to break up
+
+(These walls, these walls)
+(These walls) They'd tell us to break up
+(These walls, these walls)
+(These walls, these walls)
+
+They tell us "Go and face your fears"
+It's getting worse the longer that we stay together
+We call it love, but hate it here
+Did we really mean it when we said forever?
+
+Oh, this love is fading
+So much we're not saying
+
+But if these walls could talk
+(They'd say) "Enough"
+(They'd say) "Give up"
+(I know) If these walls could talk
+(They'd say) "You know"
+(They'd say) "You're fucked"
+It's not supposed to hurt this much
+Oh, if these walls could talk
+They'd tell us to break up
+
+(These walls, these walls)
+(These walls) They'd tell us to break up
+(These walls, these walls)
+(These walls) They'd tell us to break up
+
+You don't wanna go (Go)
+Don't wanna stop (Stop)
+Heaven knows I (I)
+Don't wanna be the one to cut it off
+
+But if these walls could talk
+(They'd say) "Enough"
+(They'd say) "Give up" (Give it up, give it up, give it up)
+If these walls could talk
+(They'd say) "You know"
+(They'd say) "You're fucked"
+(Yeah, you know, yeah, you know you're fucked)
+It's not supposed to hurt this much
+Oh, if these walls could talk
+They'd tell us to break up
+
+(These walls, these walls)
+(These walls) They'd tell us to break up
+(These walls, these walls)
+(They'd tell us to break up)

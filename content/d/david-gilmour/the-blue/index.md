@@ -1,0 +1,32 @@
+---
+title: "The Blue"
+artist: "David Gilmour"
+tags: "David Gilmour"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Shameless sea
+Aimlessly so blue
+Midnight-moon shines for you
+
+Still, marooned
+Silence drifting through
+Nowhere to choose
+Just blue...
+
+Ceaselessly
+Star-crossed you and me
+Save our souls
+We'll be forever blue
+
+Waves roll
+Lift us in blue
+Drift us
+Seep right through
+And colour us blue
+
+Wait for me
+Shameless you, the sea
+Soon, the Blue
+So soon...

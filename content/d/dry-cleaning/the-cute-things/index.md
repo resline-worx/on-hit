@@ -1,0 +1,62 @@
+---
+title: "The Cute Things"
+artist: "Dry Cleaning"
+tags: "Dry Cleaning"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Family circling wheel
+You talk like a greetings card
+But I admire you and your family vibe
+And I'm sorry that you got attacked by a dog
+
+For you, sha-la
+For you, sha-la
+
+I will reproduce and begin things
+Over and over and over
+We're stuck on the sofa
+You confuse me
+We're meant to be
+From the same egg, but you confuse me
+You confuse me
+Sincere things you say make me want to laugh
+And not in a good way
+And not in a good way
+And not in a good way, but it's ok
+
+For you, sha-la
+For you, sha-la
+
+Alien offshoot mushroom
+Going the gym to get slim
+Because he taught me to be a winner
+True
+
+True melon
+Pepo
+For you
+I'm willing
+To change roles
+For you
+It's literally Blackpool
+You are most
+Certainly, to me
+For you
+A total work of art
+It's social history
+Leeds, Blackpool
+Total work of art
+A fearless spirit
+Total work of art
+My melodrama
+I hate it but I need it
+Playing drums
+Total work of art
+Big boxy hair fills the frame
+For you
+True melon
+A total work of art
+Total work of art
+For you

@@ -1,0 +1,42 @@
+---
+title: "Melek"
+artist: "Duman"
+tags: "Duman"
+featuring: ""
+language: "şarkı sözleri"
+draft: false
+---
+Kendisi bir garip melek
+Ardına düşmeniz gerek
+Kendisi bir garip melek
+Ardına düşmeniz gerek
+
+Öyle bir an gelir melek
+Farkına varmanız gerek
+Öyle bir an gider melek
+Farkına varmanız gerek
+
+Aldırmazsan aldırma
+Ama kendini kandırman gerek
+Kandırmazsan kandırma
+O zaman sana anlatmam gerek
+
+Kendisi bir garip melek
+Ardına düşmeniz gerek
+Kendisi bir garip melek
+Ardına düşmeniz gerek
+
+Aldırmazsan aldırma
+Ama kendini kandırman gerek
+Kandırmazsan kandırma
+O zaman sana anlatmam gerek
+
+(Senden daha melek
+Senden daha melek
+Senden daha melek
+Senden daha melek)
+
+Aldırmazsan aldırma
+Ama kendini kandırman gerek
+Kandırmazsan kandırma
+O zaman sana anlatmam gerek

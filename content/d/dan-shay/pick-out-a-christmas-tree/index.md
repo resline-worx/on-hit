@@ -1,0 +1,67 @@
+---
+title: "Pick Out A Christmas Tree"
+artist: "Dan + Shay"
+tags: "Dan + Shay"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Downtown's getting busy
+People everywhere
+Stores are decorated, there's Christmas in the air
+Santa's getting ready
+Kids are counting down
+The only thing left to do right now is
+
+Pick out a Christmas tree
+Top shelf in aisle three
+We'll tie it to the car
+Hey, don't forget the star
+And when we get back home
+Plug it in and watch it glow
+Been waiting all year to
+Light up the living room with you, ooh, ooh
+
+You, ooh, ooh
+With you, ooh, ooh
+You, ooh, ooh
+
+We'll line up all the stockings
+Hang some mistletoe
+Can stay up past our bedtimes
+And pray for it to snow until we
+
+Pick out a Christmas tree
+Top shelf in aisle three
+We'll tie it to the car
+Hey, don't forget the star
+And when we get back home
+Plug it in and watch it glow
+Been waiting all year to
+Light up the living room with you, ooh, ooh
+
+You, ooh, ooh
+With you, ooh, ooh
+You, ooh, ooh
+
+So grab your kids and grab your coat
+December's here, what you say we go and
+
+Pick out a Christmas tree
+Top shelf in aisle three
+We'll tie it to the car
+Hey, don't forget the star
+And when we get back home
+Plug it in and watch it glow
+Been waiting all year to
+Light up the living room with you, ooh, ooh
+
+You, ooh, ooh
+With you, ooh, ooh
+You, ooh, ooh
+You, ooh, ooh
+You, ooh, ooh (Yeah)
+With you, ooh, ooh
+You, ooh, ooh
+
+Go pick out a Christmas tree with you

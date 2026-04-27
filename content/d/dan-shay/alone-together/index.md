@@ -1,0 +1,55 @@
+---
+title: "Alone Together"
+artist: "Dan + Shay"
+tags: "Dan + Shay"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+I couldn't help but notice you were sitting by yourself
+Dropping limes in a Corona like you're trying to get over somebody else
+It's funny how you're story sounds a little like mine
+Oh, cause' I've been at a table with a bottle peeling labels to pass the time
+
+We can be blue eyes as the neon light
+Singing them sad love songs all night
+We can say goodbye, just head home
+But, if we're going to be alone
+
+We should be alone together
+Kissing over there in the corner where nobody else can see
+Keeping each other company
+We should be alone together
+Leaning up against my car door parked outside on the street, where it's just you and me
+We should be alone together
+
+I couldn't help but notice you could use another drink
+Yeah, I don't wanna leave ya
+And it's two for one Tequila so what you think?
+
+We can be blue as the neon light
+Singing them sad love songs all night
+We can say goodbye, just head home
+But, if we're going to be alone
+
+We should be alone together
+Kissing over there in the corner where nobody else can see
+Keeping each other company
+We should be alone together
+Leaning up against my car door parked outside on the street, where it's just you and me
+We should be alone together
+We should be alone together
+We should be alone together, oh yeah
+
+We should be alone together
+Over there in the corner where nobody else can see
+
+We should be alone together
+Kissing over there in the corner where nobody else can see
+Keeping each other company
+We should be alone together
+Leaning up against my car door parked outside on the street, where it's just you and me
+We should be alone together
+We should be alone together
+We should be alone together, oh yeah
+We should be alone together

@@ -1,0 +1,93 @@
+---
+title: "Christmas Every Day"
+artist: "David Archuleta"
+tags: "David Archuleta"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Sidewalks covered up in snow
+Lights up everywhere we go
+Santa's on his way
+It's Christmas every day
+
+It's here again
+Finally the season when
+Everybody's caroling
+Peace on earth, good will
+To everyone
+Children all having fun
+Waiting on Santa to come
+With the bag full of Christmas cheer
+
+It all goes by so fast
+If only I can make this last
+
+Sidewalks covered up in snow
+Lights up everywhere we go
+Santa's on his way
+It's Christmas every day
+Friends all warmed up by the fire
+Sometimes I just wish that I
+Could always feel this way
+Like it's Christmas every day
+
+As for me
+There's nothing like a Christmas tree
+Surrounded by family
+Deck the Halls with boughs
+Of evergreen, let's pop some corn
+And watch our favorite scene
+Where the angel gets his wings
+With every bell that rings
+
+It all goes by so fast
+If only I can make this last
+
+Sidewalks covered up in snow
+Lights up everywhere we go
+Santa's on his way
+It's Christmas every day
+Friends all warmed up by the fire
+Sometimes I just wish that I
+Could always feel this way
+Like it's Christmas every day
+
+Oh, oh, oh, oh, oh, oh
+Christmas every day
+
+If I could have one more gift just for me
+Joy to the world it would be
+With more Christmases under the tree
+
+Sidewalks covered up in snow
+Lights up everywhere we go
+Santa's on his way
+It's Christmas every day
+Friends all warmed up by the fire
+Sometimes I just wish that I
+Could always feel this way
+Like it's Christmas every day
+
+Sidewalks covered up in snow
+Lights up everywhere we go
+Santa's on his way
+It's Christmas every day
+Friends all warmed up by the fire
+Sometimes I just wish that I
+Could always feel this way
+Like it's Christmas every day
+
+Sidewalks covered up in snow
+Lights up every where we go
+Santa's on his way
+It's Christmas every day
+Friends all warmed up by the fire
+Sometimes I just wish that I
+Could always feel this way
+Like it's Christmas every day
+
+Friends all warmed up by the fire
+Sometimes I just wish that I
+Could always feel this way
+Like it's Christmas every day

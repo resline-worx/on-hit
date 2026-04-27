@@ -1,0 +1,26 @@
+---
+title: "A Boat Lies Waiting"
+artist: "David Gilmour"
+tags: "David Gilmour"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Something I never knew
+In silence I'd hear you
+And a boat lies waiting
+Still your clouds all flaming
+That old time easy feeling
+
+What I lost was an ocean
+Now I'm drifting through without you
+In this sad barcarolle
+
+What I lost was an ocean
+And I'm rolling right behind you
+In this sad barcarolle
+
+It rocks you like a cradle
+It rocks you to the core
+You'll sleep like a baby
+As it knocks at Death's door

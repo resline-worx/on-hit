@@ -1,0 +1,55 @@
+---
+title: "Hass Hass"
+artist: "Diljit Dosanjh & Sia"
+tags: "Diljit Dosanjh"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Oh, I'm gon' take your breath away
+But don't stop runnin' to me
+
+Feel me, and the breeze baby
+I'm the ocean, sky in heels, baby (Baby)
+I'm the forest and the trees, baby
+You're the Royce and I'm the wheels, baby (Baby)
+Tera vi ae dil sab jaan da
+Tu jo mili jappe koi haan da
+Laal hoya rang asman da
+Roop jive nikhri rakaan da
+Jithey-jithey jave per rakhdi
+Soniye barf vangu thare garbru
+
+Mang ley je dil lena chauni ae
+Hass-hass suli uthey chadey gabru
+Mang le je dil laina chauni ae
+Hass-hass suli uthey chadey gabru
+Oh, I'm gon' take your breath away
+But don't stop runnin' to me
+'Cause I will hold you, baby
+If you're my ocean, I'm your wave
+
+Beach uthey hathan vich wine ni
+Hove dove passe iko rhyme ni
+Oh roop tera dhup ch na khur je
+Dand aa patashe kare shine ni
+Bajwe di hoja dub janiye
+Athre dosanjhanwale sare gabru
+
+Mang le je dil laina chauni aa
+Hass-hass suli uthey chadey gabru
+Mang le je dil laina chauni aa
+Hass-hass suli uthey chadey gabru
+Oh, I'm gon' take your breath away
+But don't stop runnin' to me
+'Cause I will hold you, baby
+If you're my ocean, I'm your wave
+Mang le je dil laina chauni aa
+Hass-hass suli uthey chadey gabru
+Mang le je dil laina chauni aa
+Hass-hass suli uthey chadey gabru
+
+Dil tenu de ditta main taan soneya
+Jaan tere kadma ch rakhi hoyi ae
+Marna main teriyan bahan ch chann ve
+Sohn tere pyaar di main chakki hoyi ae

@@ -1,0 +1,27 @@
+---
+title: "No Way"
+artist: "David Gilmour"
+tags: "David Gilmour"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+There's no way I'm going to let go
+There's no way, because it's my show
+I'm hanging on for a little while
+I won't go down easy, that's not my style
+
+I'm all tied up, tied up in a knot
+And I can't decide just what it is I've got
+Did I get out of touch? Did I lose my way?
+I've not forgot, no, not a single day
+
+Now you might believe I'm not a happy man
+Putting myself apart from the common clan
+Well, the boat we're sailing, we have a leak or two
+But I know it's sound, like me and you
+
+So there's no way I'm going to let go
+There's no way, because it's my show
+I'm hanging on for a little while
+I won't go down easy, that's not my style

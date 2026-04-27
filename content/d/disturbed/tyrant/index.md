@@ -1,0 +1,60 @@
+---
+title: "Tyrant"
+artist: "Disturbed"
+tags: "Disturbed"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Can we make amends, do we just pretend
+That we're over all the violence
+Are we done with this? Put it all to rest
+Turn the screams now into silence
+Will you be a man? Can you make a stand?
+Will you own up or deny it.
+All the time we lost, was it worth the cost
+Of breaking a family in two?
+Destroyed all we knew
+
+Tyrant, so defiant
+Lonely as your heart's sinking
+Consequences, no defenses
+If only you had been thinking
+And compliant, for a moment
+Why did both of us have to believe that we were right?
+Tyrant!
+
+Can I clear my mind? Leave it all behind?
+Start to pick up all the pieces
+Can I hide the scars? Just like prison bars
+That have always seemed to confine me
+Will we save it all? Even from the fall?
+Is there time left for revival?
+Can I be convinced that some hope exists?
+With these wounds cut so deep in my soul
+Can we become whole?
+
+Tyrant, so defiant
+Lonely as your heart's sinking
+Consequences, no defenses
+If only you had been thinking
+And compliant, for a moment
+Why did both of us have to believe that we were right?
+Tyrant!
+
+There's so many things that I wanted to say
+But the love turned to hate we kept pushing away
+And the words that came out turned it into a mess
+And it's like pulling teeth 'cause you'll never confess
+Now the damage is done
+The hurt and the pain when nobody has won
+Have we forgot it's your blood inside of my veins
+That feeds my heart
+
+Tyrant, so defiant
+Lonely as your heart's sinking
+Consequences, no defenses
+If only you had been thinking
+And compliant, for a moment
+Why did both of us have to believe that we were right?
+Tyrant!

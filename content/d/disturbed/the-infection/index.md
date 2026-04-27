@@ -1,0 +1,57 @@
+---
+title: "The Infection"
+artist: "Disturbed"
+tags: "Disturbed"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+In the back of my mind I can
+Barely even remember when
+There was nothing left to hide and
+She had found a way inside then
+I was forced to walk alone
+Living in an empty home
+All I wanted was to hide and
+Try to numb the ache inside
+And I'm still afraid of the light
+And a thousand voices share their
+Laughter at my demise
+
+Now if I am to survive
+The infection must die
+Murder the beast
+That's been eating me alive
+The infection must die
+
+Nothing left but a broken man
+Terrified of everything
+Nothing left of his foolish pride, his
+Fond memories slowly die, then
+As he wakes again alone
+Still a prisoner in his home
+Ready to allow the dark to
+Penetrate his broken heart
+And he's still afraid of the light
+And a thousand voices share their
+Laughter at his demise
+
+Now if I am to survive
+The infection must die
+Murder the beast
+That's been eating me alive
+The infection must die
+
+Kill the motherfucker
+
+Now if I am to survive (Oh I must survive)
+The infection must die
+Murder the beast (Murder the beast)
+That's been eating me alive
+The infection must die
+
+This is where I draw the line, where I draw the line
+This infection must die, this infection must die
+Give me release from this demon of mine, demon of mine
+The infection must die
+The infection must die

@@ -1,0 +1,84 @@
+---
+title: "Which One"
+artist: "Drake & Central Cee"
+tags: "Drake"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Does my hair look beautiful? (Yeah)
+Do my titties look right?
+Think I can knock a boy off right now?
+
+All the girls that's here for the truth, come put both hands on the DJ booth
+Then wine your waist to the big man sound
+
+And I get too stiff 'cause that ting's too round, good God
+Make me lift up your gown, but your face so sweet, wanna spin you around
+If I go link gang, I'll bring you around
+If I go to the bar, I'll bring you around
+Which one? Which one?
+You're not like the tings you're around
+You're a real good girl, so I'm bringin' you down
+But come to the bed, I'll fling you around, weh
+These guys can't make songs for the gyal dem
+Trust me, this how the single should sound
+Fuck anyone that's bringing you down
+Sweetheart, you're doing your thing right now, good God
+
+Yeah, all the girls that's here for the truth, come put two hands pon the DJ booth
+Then wine your waist pon a real good yute dem
+
+You want Cench or your ex, which one?
+You want friends or success, which one?
+Tell the sound man, "Spin this one"
+Play this for the gyal dem party, dun
+
+God forbid a girl's tryna have fun
+I got X if you wanna take drugs
+You wanna have sex or do you wanna make love?
+Which one? Which one? Which one? Which one?
+Got a fairy ting and I got a witch one
+A G'd up ting that I bring sticks 'round
+And I've got a good girl, good girl, snitch one
+Too many gyal, now I gotta switch one
+Turn the hotel to a twenty V. one
+Three-sixty, my head got spun
+Junk in the trunk, can see it from front
+Girl, your body is tea, it's pain, I'm sprung
+Your backside weighin' you down, one ton
+I got a chopstick for your wonton
+Tell me what you want, what you really, really want
+Put a coin in the slot, ya just hit jackpot
+
+Ayy, all the girls that's here for the truth, come put two hands on the DJ booth
+Then wine your waist for the six-side yute and
+
+Put your head inna the pillow, face first
+Face first, face first, face first
+Ayy, face first, face first
+Put your head inna the pillow, face first
+I'm in the jam, know the mandem, burst
+You got makeup on the white shirt
+I wanna fuck out your face and skrrt
+You need to throw that ting inna reverse
+Then work, work, work, work, work
+Yeah, work, work, work, work, work
+Your last man broke your heart and it hurts
+You could cry out ya eye and curse
+You want diamond watch, you want purse
+You don't need swimsuit, take off your shirt
+Bend your back, gyal, don't say a word
+Face of a angel, I come like church
+I can't wait, girl, I'm not a waiter
+But you're sexy, you still get served
+I'm at the Claridge's in London, burst
+Put your head inna the pillow, face first
+
+Yeah, all the girls that's here for the truth, come put two hands on the DJ booth
+Then wine your waist for the six-side yute dem
+
+Ayy, you want Cench or your ex, which one?
+You want friends or success, which one?
+Tell the sound man, "Spin this one"
+Play this for the gyal dem party, dun

@@ -1,0 +1,72 @@
+---
+title: "The Riddle"
+artist: "dArtagnan"
+tags: "dArtagnan"
+featuring: "Visions of Atlantis"
+language: "Lyrics"
+draft: false
+---
+I got two strong arms
+Blessings of Babylon time
+To carry on and try
+For sins and false alarms
+So to America the brave
+Wise men says
+
+Near a tree by a river
+There's a hole in the ground
+Where an old man of Aran
+Goes around and around
+And his mind is a beacon
+In the veil of the night
+For a strange kind of fashion
+Theres a wrong and a right
+But he'll never, never fight over you
+
+I got time to kill
+Sly looks in corridors
+Without a plan of yours
+A blackbird sings on bluebird hill
+Thanks to the calling of the wild
+Wise men's child
+
+Near a tree by a river
+There's a hole in the ground
+Where an old man of Aran
+Goes around and around
+And his mind is a beacon
+In the veil of the night
+For a strange kind of fashion
+There's a wrong and a right
+But he'll never, never fight over you
+
+I got plans for us
+Nights in the scullery
+And days instead of me
+I only know what to discuss
+Oh, for anything but light
+Wise men fighting over you
+
+It's not me you see
+Pieces of valentine
+And just a song of mine
+To keep from burning history
+Seasons of gasoline and gold
+Wise men fold
+
+Near a tree by a river
+There's a hole in the ground
+Where an old man of Aran
+Goes around and around
+And his mind is a beacon
+In the veil of the night
+For a strange kind of fashion
+There's a wrong and a right
+He'll never, never fight over you
+
+I got time to kill
+Sly looks in corridors
+Without a plan of yours
+A blackbird sings on bluebird hill
+Thanks to the calling of the wild
+Wise men's child

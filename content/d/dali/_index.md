@@ -1,0 +1,4 @@
+---
+title: "Dalí"
+draft: false
+---

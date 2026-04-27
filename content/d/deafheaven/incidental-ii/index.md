@@ -1,0 +1,35 @@
+---
+title: "Incidental II"
+artist: "Deafheaven"
+tags: "Deafheaven"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+I think I might be hiding from myself
+It's so good to be alone with someone else
+When you come to me, I see you wanting heat
+You're so good to me
+Have we met before?
+It's so good to be hiding from myself
+I'm hiding
+
+When you say "Baby, come to me"
+Who am I?
+One who cannot see
+I think I might be hiding from myself
+It's so good to be alone, alone with someone else
+
+Hiding with the excess
+Intense abruptness
+I treaded the winepress
+The brutal facts of a strange bondage
+
+Not being held
+For all that I've done
+For all that I own
+Not being held
+For all that I've done
+For all that I own
+
+Desperate to be alone

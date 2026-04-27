@@ -1,0 +1,35 @@
+---
+title: "PIMMIE'S DILEMMA"
+artist: "Pim, PARTYNEXTDOOR & Drake"
+tags: "Drake"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+[Pim:]
+Please, don't go out with your friends
+They don't ever keep you in check
+They gon' let you do whatever
+And blame it on the liquor, oh
+Oh, forgot they for silence, wildin'
+Think I don't know about them clubs, uh?
+You got strippers that you favor, uh
+But you say you don't go out that much
+
+Can't you wait? Don't love nobody
+Spending time with people that don't respect the love we got here
+You said you got me, but you're headed elsewhere
+And your friends ain't shit, they do the most, you know it's reckless, yeah
+Can't you wait? Don't love nobody
+Entertaining bitches you said you wouldn't, you said you got me
+You swore on everything you said, don't ever doubt me
+Don't love nobody, oh, don't love nobody, oh-oh, oh
+
+Please, don't go out with your friends
+They don't ever keep you in check
+They gon' let you do whatever
+And blame it on the liquor, oh
+Oh, forgot they for silence, wildin'
+Think I don't know about them clubs, uh?
+You got strippers that you favor, uh
+But you say you don't go out that much

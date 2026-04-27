@@ -1,0 +1,46 @@
+---
+title: "My Soul / Half Pint"
+artist: "Dry Cleaning"
+tags: "Dry Cleaning"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+I like to sort, move my things around, colour coding
+Everything has a home in my house
+But I don't like to clean, I find cleaning demeaning
+But that's kind of a problem of mine
+I'm a woman and I think if I clean then I...
+
+I feel resentment in my soul
+Something I gotta get over
+It's pretty immature
+But it's real deep
+In my soul, in my soul
+In my soul, in my soul
+In my soul
+I feel resentment
+In my soul
+
+Dirty house!
+Sometimes, not all the time
+I'm like lil' Minnie, lil' Annie...
+What's that little character?
+Like early Abba
+I don't give a fuh
+I don't give a fuh
+I don't give a fuh
+
+I feel resentment in my soul
+Maybe it's time for men to clean for like, five hundred years
+I'm not too concerned about that, uh
+
+Nineteen thousand, twenty thousand...
+I count all day long
+I count all day long
+I love to count, it relaxes me
+And it gives me
+An achievable goal
+Clears my mind
+Soothes my...
+Soothes my soul
