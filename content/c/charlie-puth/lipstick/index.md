@@ -1,0 +1,71 @@
+---
+title: "Lipstick"
+artist: "Charlie Puth"
+tags: "Charlie Puth"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Come and put your lipstick on my neck and my body (My baby)
+Just to show these bitches that you're mine (Oh)
+Lipstick on my collar, show 'em you ain't no hobby (My baby)
+You're the one who gets it all the time (Oh)
+
+Baby, I think it's time we post a picture
+Tell your momma and your sister you got a man
+'Cause I'm your man (Yeah)
+And lately, I've been thinking 'bout the future
+We can make it more than rumors
+That I'm your man 'cause I'm your man (Yes)
+
+You can go ahead and be selfish
+Baby, there ain't no reason to be jealous
+Yeah, if you really want it, you don't gotta hold your tongue
+
+Come and put your lipstick on my neck and my body (My baby)
+Just to show these bitches that you're mine (Oh)
+Lipstick on my collar, show 'em you ain't no hobby (My baby)
+You're the one who gets it all the time (Oh)
+
+Baby, I know this might sound kinda crazy, but
+What would you want to name the baby?
+No, I'm just playin', but I'm just sayin'
+The moon, the stars, I'll raise the bar
+I stay kissing you in public, and holdin' your hand 'cause I'm your man
+
+So you can go ahead and be selfish
+Baby, there ain't no reason to be jealous
+Yeah, if you really want it you don't gotta hold your tongue (Yeah)
+
+Come and put your lipstick on my neck and my body (My baby)
+Just to show these bitches that you're mine (Oh)
+Lipstick on my collar, show 'em you ain't no hobby (My baby)
+You're the one who gets it all the time (Oh)
+
+Listen
+I've been wanting to say this for a long time now
+And it feels like
+It feels like the only way I can do it is
+
+You got the kind of lips that I like (Sing it)
+Tell me, do you want to taste?
+Don't you know that you're not the type that's only one night, no
+Baby, I can make you stay
+One more time
+You got the kind of lips that I like (Sing it)
+Tell me, do you want to taste?
+Don't you know that you're not the type that's only one night, no
+Baby, I can make you stay
+Everybody now
+
+Come and put your lipstick on my neck and my body (My baby)
+Just to show these bitches that you're mine
+You're mine, mine, you're mine, mine
+Lipstick on my collar, show 'em you ain't no hobby (My baby)
+You're the one who gets it all the time (Oh)
+
+I wanna, wanna say it one more time
+Come and put your lipstick on my neck and my body (My baby)
+Just to show these bitches that you're mine (Oh)
+Lipstick on my collar, show 'em you ain't no hobby (My baby)
+You're the one who gets it all the time

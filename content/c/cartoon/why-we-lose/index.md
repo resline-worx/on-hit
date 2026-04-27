@@ -1,0 +1,38 @@
+---
+title: "Why We Lose"
+artist: "Cartoon & JÉJA"
+tags: "Cartoon"
+featuring: "Coleman Trapp"
+language: "Lyrics"
+draft: false
+---
+I don't know what you want
+Let's have a bit of fun
+'Til I downfall
+My love, if you feel like I do right now
+Don't say you're on the run
+To the other side, my love
+
+I don't know what you want
+Let's have a bit of fun
+'Til I downfall
+My love, if you feel like I do right now
+Don't say you're on the run
+To the other side, my love
+
+You say you wanna try
+But you never do
+Sugar there's a reason
+Why we lose
+
+Baby, come on
+
+You say you wanna try
+But you never do
+Sugar there's a reason
+Why we lose
+
+You say you wanna cry
+But you never do
+Sugar there's a reason
+Why we lose

@@ -1,0 +1,38 @@
+---
+title: "La Dernière Fois"
+artist: "Clara Luciani"
+tags: "Clara Luciani"
+featuring: ""
+language: "Paroles"
+draft: false
+---
+Prends une photo de moi
+Photocopie la trois fois
+Encadre la au-dessus de ton piano droit
+Entre tes parents et un certificat
+
+C'est la dernière fois que tu me vois
+C'est la dernière fois que tu me vois
+C'est la dernière fois que tu me vois
+C'est la dernière fois que tu me vois
+
+Garde un souvenir précis
+Du son de ma voix et de nos insomnies
+Respire mon parfum à même mon cou
+Souviens-toi de ma bouche
+Souviens-toi de mon goût
+
+C'est la dernière fois que tu me vois
+C'est la dernière fois que tu me vois
+C'est la dernière fois que tu me vois
+C'est la dernière fois que tu me vois
+
+Tu peux partir maintenant tout est sauvegardé
+Ton cœur a ses archives comme il a ses secrets
+
+C'est la dernière fois que tu me vois
+La dernière fois que tu me vois
+C'est la dernière fois que tu me vois
+La dernière fois que tu me vois
+C'est la dernière fois que tu me vois
+La dernière fois que tu me vois

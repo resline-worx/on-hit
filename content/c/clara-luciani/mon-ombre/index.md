@@ -1,0 +1,41 @@
+---
+title: "Mon Ombre"
+artist: "Clara Luciani"
+tags: "Clara Luciani"
+featuring: ""
+language: "Paroles"
+draft: false
+---
+Mon drame c'est mon ombre
+Une ombre, une géante voilée
+Qui grimpe et qui pousse le long de mon corps
+Comme du mauvais lierre, comme un mauvais sort
+
+Mon drame c'est mon ombre
+Elle c'est le diable qui l'a cousue à mes pieds
+Mon drame c'est mon ombre
+Était-ce le diable le jour où je suis née?
+
+Mon drame c'est mon ombre
+Une ombre profonde comme la nuit
+Qui gronde et ronronne
+Quand je lui donne ma peur d'être seule
+Ma peur d'échouer
+Mon drame c'est mon ombre
+Elle c'est le diable qui l'a cousue à mes pieds
+Mon drame c'est mon ombre
+Était-ce le diable le jour où je suis née?
+
+Mon drame c'est mon ombre
+Une ombre tentaculaire spectaculaire
+Qui crache son encre épaisse et rance
+Sur ce qui restait de mes espérances
+
+Mon drame c'est mon ombre
+Elle c'est le diable qui l'a cousue à mes pieds
+Mon drame c'est mon ombre
+Était-ce le diable le jour où je suis née?
+
+Mon drame
+C'est mon ombre
+Mon drame c'est mon ombre

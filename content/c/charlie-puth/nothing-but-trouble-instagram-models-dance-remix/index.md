@@ -1,0 +1,103 @@
+---
+title: "Nothing But Trouble (Instagram Models) (Dance Remix)"
+artist: "Charlie Puth"
+tags: "Charlie Puth"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+(I'm facing the bottle)
+(I'm facing the bottle)
+(I'm facing the bottle)
+(I'm facing the bottle)
+(Nothing but trouble, but trouble)
+(I'm facing the bottle)
+(I'm facing the bottle)
+(I'm facing the bottle)
+(I'm facing the bottle)
+
+I'm facing the bottle (Oh)
+For all of my problems (Oh)
+These Instagram models (Oh)
+Are nothing but trouble
+(Nothing but trouble, but trouble)
+She's going away now (Oh)
+I'm going full throttle (Oh)
+All these Instagram models (Oh)
+I said they're nothing but trouble
+(Nothing but trouble, but trouble)
+(Oh)
+(Oh)
+(Oh)
+(Oh)
+
+Nothing but trouble (Oh)
+(Nothing but trouble, but trouble)
+(Oh)
+(Oh)
+(Oh)
+Nothing but trouble
+(Nothing but trouble, but trouble)
+
+(Oh) I'm facing the bottle (Oh)
+For all of my problems (Oh)
+These Instagram models (Oh)
+Are nothing but trouble (Oh)
+She's going away now (Oh)
+I'm going full throttle (Oh)
+All these Instagram models (Oh)
+I said they're nothing but trouble (Oh)
+(Oh)
+(Oh)
+(Oh)
+
+Nothing but trouble
+(Nothing but trouble, but trouble)
+(Oh)
+(Oh)
+(Oh)
+(Oh)
+
+(Oh) I'm facing the bottle (Oh)
+For all of my problems (Oh)
+These Instagram models (Oh)
+Are nothing but trouble (Oh)
+(Nothing but trouble, but trouble)
+(Oh)
+She's going away now (Oh)
+I'm going full throttle (Oh)
+All these Instagram models (Oh)
+I said they're nothing but trouble (Oh)
+(Nothing but trouble, but trouble)
+(Oh)
+(Oh)
+(Oh)
+
+Nothing but trouble
+(Nothing but trouble, but trouble)
+(Oh)
+(Oh)
+(Oh)
+(Oh)
+
+(Oh) I'm facing the bottle (Oh)
+For all of my problems (Oh)
+These Instagram models (Oh)
+Are nothing but trouble (Oh)
+(Nothing but trouble, but trouble)
+(Oh)
+She's going away now (Oh)
+I'm going full throttle (Oh)
+All these Instagram models (Oh)
+I said they're nothing but trouble (Oh)
+
+(I'm facing the bottle)
+(I'm facing the bottle)
+(I'm facing the bottle)
+(I'm facing the bottle)
+(Nothing but trouble, but trouble)
+(I'm facing the bottle)
+(I'm facing the bottle)
+(I'm facing the bottle)
+(I'm facing the bottle)
+(Nothing but trouble, but trouble)

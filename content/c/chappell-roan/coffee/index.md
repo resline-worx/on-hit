@@ -1,0 +1,38 @@
+---
+title: "Coffee"
+artist: "Chappell Roan"
+tags: "Chappell Roan"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Can't meet you for dinner at the Italian place
+It's where I met your family, some words were exchanged
+I'd suggest the jazz bar on MaryAnn Street, but
+You'd buy me a drink, and we know where that leads, so
+
+I'll meet you for coffee 'cause if we have wine
+You'll say that you want me, I know that's a lie
+If I didn't love you, it would be fine
+I'll meet you for coffee, only for coffee
+Nowhere else is safe, every place leads back to your place
+
+You said let's do the park, 'cause I love the park
+That may be true, but God forbid it gets dark
+Here come the excuses that fuel the illusions
+But I'd rather feel something than nothing at all, so
+
+I'll meet you for coffee 'cause if we have wine
+You'll say that you're sorry, I know that's a lie
+If I didn't trust you, it would be fine
+I'll meet you for coffee, only for coffee
+Nowhere else is safe, every place leads back to your-
+
+We've done this before
+And I don't need it anymore
+
+So let's not do coffee, let's not even try
+It's better we leave it and give it some time
+If I didn't love you, it would be fine
+'Cause If we do coffee, it's never just coffee
+It's never just coffee

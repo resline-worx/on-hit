@@ -1,0 +1,28 @@
+---
+title: "ALUCINANDO"
+artist: "Calle 24"
+tags: "Calle 24"
+featuring: ""
+language: "Letra"
+draft: false
+---
+Ayer volví a mirarte en el humo del toque
+Te vi entre las estrellas y al fondo 'e la botella
+Tuve un breve delirio en el que tú aún dormías conmigo
+Te soñé entredormido
+
+Invente una realidad donde nunca te fuiste
+Bien ondeando juego a que aún estás
+
+Alucinado te he buscado y juro que te vi
+Cuando me faltaba el aire
+Cierro los ojos esperando abrirlos y que estés aquí
+Y pa' chingarla nunca hay nadie
+
+Invente una realidad donde nunca te fuiste
+Bien ondeando juego a que aún estás
+
+Alucinado te he buscado y juro que te vi
+Cuando me faltaba el aire
+Cierro los ojos esperando abrirlos y que estés aquí
+Y pa' chingarla nunca hay nadie

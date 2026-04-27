@@ -1,0 +1,44 @@
+---
+title: "Rabbit Hole (Cowards, Pt. 1)"
+artist: "Chevelle"
+tags: "Chevelle"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Come in 
+You king of the mountain unknown
+Survivors
+Now reap what they somehow have stole
+Don’t give them an inch
+
+I heard a change has begun
+I won’t give in to cowards
+Your fevers evolved
+I won’t become like you
+
+Come in
+Is it evidence clashing with confidence 
+Don’t give em an inch
+It’s just words
+Are you meddling to catfish the government 
+The final abyss
+
+I heard a change has begun 
+I won’t give in to cowards 
+Your fevers evolved
+The dam has fallen over
+They’ve weakened your walls
+Except the newer world
+Except the newer world
+
+Down inside the longest rabbit hole abyss 
+
+I heard a change has begun 
+I won't give in to cowards
+Your fevers evolved 
+The dam has fallen over
+They’ve weakened your walls
+Accept the newer world 
+Don’t accept what you have heard 
+Conspiracy addicts

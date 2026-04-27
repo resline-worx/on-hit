@@ -1,0 +1,16 @@
+---
+title: "Tea For The Tillerman"
+artist: "Cat Stevens"
+tags: "Cat Stevens"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Bring tea for the Tillerman
+Steak for the sun
+Wine for the women who made the rain come
+Seagulls sing your hearts away
+'Cause while the sinners sin, the children play
+
+Oh Lord how they play and play
+For that happy day, for that happy day

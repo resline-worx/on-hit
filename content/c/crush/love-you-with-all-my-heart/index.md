@@ -1,0 +1,117 @@
+---
+title: "Love You With All My Heart"
+artist: "Crush"
+tags: "Crush"
+featuring: ""
+language: "가사"
+draft: false
+---
+(from "Queen Of Tears" soundtrack)
+
+[Romanized:]
+
+It's the same day
+Ireoke neoreul
+Dasi bulleoboneun
+Itgo itdeon maeumdeulgwa
+Ijeya naemineun
+Naui miryeonhan jinsimdeul
+Neujeoseo mianhae
+
+I wish I could have told you that
+I was born to love you
+To love you with all my heart
+Neol hyanghan simjangi meomchwojijiga ana
+
+Still want you all the time
+Ajik nae maeumsok hankyeonui bange
+Geuriumeuro gadeuk chaewo
+Neoreul gidaryeo
+Need you all the time
+Amu maldo jeonhaji mothae
+Sigansogeul hemeineun
+Nareul miwohae
+
+It's the same night
+Heurithan eoneu bam angae soge neoreul
+Bulleobogon hae nan tto
+Sigan jeopyeone binnadeon
+Gieogeul tteoollyeo
+Du son kkok jabatdeon
+
+I wish I could have told you that
+I was made to love you
+To love you with all my heart
+Mangseorida honja samkyeotdeon mal saranghae
+
+Still want you all the time
+Ajik nae maeumsok hankyeonui bange
+Geuriumeuro gadeuk chaewo
+Neoreul gidaryeo
+Need you all the time
+Michin deusi nege dallyeoga
+Du pal gadeuk neoreul pumgo
+
+And I want you to know
+You're the only reason
+That I still breathe that I still live
+And to tell you
+Saranghaetdeon naui jinsimi
+Sarangbatdeon modeun gieogi
+Nae modeun iyu
+Yuilhan iyu
+Mm
+
+[Korean:]
+
+It's the same day
+이렇게 너를
+다시 불러보는
+잊고 있던 마음들과
+이제야 내미는
+나의 미련한 진심들
+늦어서 미안해
+
+I wish I could have told you that
+I was born to love you
+To love you with all my heart
+널 향한 심장이 멈춰지지가 않아
+
+Still want you all the time
+아직 내 마음속 한켠의 방에
+그리움으로 가득 채워
+너를 기다려
+Need you all the time
+아무 말도 전하지 못해
+시간속을 헤메이는
+나를 미워해
+
+It's the same night
+흐릿한 어느 밤 안개 속에 너를
+불러보곤 해 난 또
+시간 저편에 빛나던
+기억을 떠올려
+두 손 꼭 잡았던
+
+I wish I could have told you that
+I was made to love you
+To love you with all my heart
+망설이다 혼자 삼켰던 말 사랑해
+
+Still want you all the time
+아직 내 마음속 한켠의 방에
+그리움으로 가득 채워
+너를 기다려
+Need you all the time
+미친 듯이 네게 달려가
+두 팔 가득 너를 품고
+
+And I want you to know
+You're the only reason
+That I still breathe that I still live
+And to tell you
+사랑했던 나의 진심이
+사랑받던 모든 기억이
+내 모든 이유
+유일한 이유
+Mm

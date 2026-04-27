@@ -1,0 +1,35 @@
+---
+title: "Great Advice"
+artist: "Courtney Barnett"
+tags: "Courtney Barnett"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Appreciate your great advice
+But I don't wanna do my hair all nice
+I like it this way, I like it this way
+
+I don't wanna give you a piece of my mind
+I got a lotta things to do, I gotta maximize my time
+I like it this way, I like it this way
+
+Catchphrase
+There's gotta be a better way
+For what you wanna say
+
+Appreciate your great advice
+And I need your opinion like a needle in the eye
+I like it this way, I like it this way
+
+Maybe what you're saying is true
+'Cause lately, got no idea what to do
+I like it this way, I like it this way
+
+Catchphrase
+There's gotta be a better way
+For what you wanna say
+
+Catchphrase
+There's gotta be a better way
+For what you wanna say

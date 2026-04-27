@@ -1,0 +1,4 @@
+---
+title: "clipping"
+draft: false
+---

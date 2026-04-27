@@ -1,0 +1,42 @@
+---
+title: "GUCCIO"
+artist: "Calle 24"
+tags: "Calle 24"
+featuring: ""
+language: "Letra"
+draft: false
+---
+Dime tu flor favorita y te pongo un jardín
+Te miras chula de rosita, mi amapolita tan bonita, ah, ah
+Mami, ¿qué bolsa te gusta? Te doy a elegir
+No hay pedo, vete pa' lo caro
+Ya veré luego cómo le hago
+
+No hay pedo si le chambeo de más
+Zapatillas Gucci a mi loca
+Revivo al mismo Guccio pa' una edición especial, especial
+Sexy baila, sonrisa del mar
+Me domina, ella me pone mal
+De bandido me retiro, aunque ese no era el plan
+No era el plan
+
+¡Uh!
+Y así suena la C, el 2, y en cuatro te pongo, chiquitita, jaja
+Ah, ah, ah
+
+Baby, rózame la boca y trépate encima 'e mí
+Como yo a ti nadie te lo hace
+Maniaquita pero con clase, eh, eh
+Ya supe de dos, tres perros que andan tras de ti
+No hay pedo, conmigo no la arman
+Licenciado soy de la maña
+
+No hay pedo si le chambeo de más
+Zapatillas Gucci a mi loca
+Revivo al mismo Guccio pa' una edición especial, especial
+Sexy baila, sonrisa del mar
+Me domina, ella me pone mal
+De bandido me retiro, aunque ese no era el plan
+No era el plan
+
+¡Uh!

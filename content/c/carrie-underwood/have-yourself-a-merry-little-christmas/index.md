@@ -1,0 +1,32 @@
+---
+title: "Have Yourself A Merry Little Christmas"
+artist: "Carrie Underwood"
+tags: "Carrie Underwood"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Have yourself a merry little Christmas
+Let your heart be light
+From now on our troubles will be out of sight
+
+Have yourself a merry little Christmas
+Let the yuletide gay
+From now on our troubles will be miles away
+
+Here we are as in olden days
+Happy golden days of yore
+Faithful friends who are dear to us
+Gather near to us once more
+
+Through the years, we all will be together
+If the fates allow
+Hang a shining star upon the highest bough
+And have yourself a merry little Christmas now
+
+Through the years, we all will be together
+If the fates allow
+Hang a shining star upon the highest bough
+And have yourself a merry little Christmas now
+
+A merry little Christmas

@@ -1,0 +1,64 @@
+---
+title: "Multo"
+artist: "Cup Of Joe"
+tags: "Cup Of Joe"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Humingang malalim
+Pumikit na muna
+At baka sakaling
+Namamalikmata lang
+Ba't nababahala?
+'Di ba't ako'y mag-isa?
+Kala ko'y payapa
+Boses mo'y tumatawag pa
+
+Binaon naman na ang lahat
+Tinakpan naman na aking sugat
+Ngunit ba't ba andito pa rin?
+Hirap na 'kong intindihin
+
+Tanging panalangin
+Lubayan na sana
+Dahil sa bawat tingin
+Mukha mo'y nakikita
+Kahit sa'n man mapunta ay
+Anino mo'y kumakapit sa aking kamay
+Ako ay dahan-dahang
+Nililibing nang buhay pa
+
+Hindi na makalaya
+Dinadalaw mo 'ko bawat gabi
+Wala mang nakikita
+Haplos mo'y ramdam pa rin sa dilim
+Hindi na nananaginip
+Hindi na ma-makagising
+Pasindi na ng ilaw
+Minumulto na 'ko ng damdamin ko
+Ng damdamin ko
+
+Hindi mo ba ako lilisanin?
+Hindi pa ba sapat pagpapahirap sa 'kin?
+Hindi na ba ma-mamayapa?
+'Di na ba ma-mamayapa?
+
+Hindi na makalaya
+Dinadalaw mo 'ko bawat gabi
+Wala mang nakikita
+Haplos mo'y ramdam pa rin sa dilim
+Hindi na nananaginip
+Hindi na ma-makagising
+Pasindi na ng ilaw
+Minumulto na 'ko ng damdamin ko
+Ng damdamin ko
+
+Hindi mo ba ako lilisanin?
+(Makalaya)
+Hindi pa ba sapat pagpapahirap sa 'kin?
+(Dinadalaw mo 'ko bawat gabi)
+Hindi na ba ma-mamayapa?
+(Wala mang nakikita)
+Hindi na ba ma-mamayapa?
+(Haplos mo'y ramdam pa rin sa dilim)

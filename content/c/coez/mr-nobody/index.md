@@ -1,0 +1,73 @@
+---
+title: "Mr. Nobody"
+artist: "Coez"
+tags: "Coez"
+featuring: ""
+language: "testo"
+draft: false
+---
+Alcuni dicono che si sta meglio quando si sta peggio
+Io che avrei dato un braccio per firmare con la major
+Rimango indipendente, solo a sfreggio
+Io nel mio lato oscuro ci campeggio
+In mezzo a 'sti palazzi guarda come matcho
+Ho visto cose andare male e dopo andare peggio
+E dopo ancora peggio
+Piacere, Mr. Nobody
+
+Ho lasciato un'ossessione fare breccia
+Ho seguito una visione nella nebbia
+Piacere, Mr. Nobody
+
+Mamma diceva sempre di non bere
+Di non fumare come ciminiere
+E di non fare tardi, di non fare drammi
+Ma i drammi io li faccio di mestiere
+Mi fanno a pezzi male queste sere
+Solo la musica mi tiene insieme, yeah
+Ma se ricordo bene, io e lo stare bene
+Da sempre siamo rette parallele
+Io e lo stare bene
+Rette parallele
+Piacere, Mr. Nobody
+
+Ho visto un sogno farsi grande più di casa mia
+Mi sono detto: "Giuro, un giorno ce ne andremo via"
+Magari a Salvador de Bahia
+O solo fuori da una galleria
+Ho aperto mille porte senza avere chiavi
+Ora, mi raccomando, almeno fate i bravi
+La vita è andare in bici senza mani
+Tagliare la corda o tirare i dadi
+Piacere, Mr. Nobody
+
+Ho lasciato un'ossessione fare breccia
+Ho seguito una visione nella nebbia
+Piacere, Mr. Nobody
+
+Mamma diceva sempre di non bere
+Di non fumare come ciminiere
+E di non fare tardi, di non fare drammi
+Ma i drammi io li faccio di mestiere
+Mi fanno a pezzi male queste sere
+Solo la musica mi tiene insieme, yeah
+Ma se ricordo bene, io e lo stare bene
+Da sempre siamo rette parallele
+
+Ed ho sprecato il suo miele
+Ho camminato da solo fino a dove non si vede
+Ed ho sprecato preghiere
+L'ho presa un po' come viene
+Ho camminato da solo fino a dove non si vede
+
+Mamma diceva sempre di non bere
+Di non fumare come ciminiere
+E di non fare tardi, di non fare drammi
+Ma i drammi io li faccio di mestiere
+Mi fanno a pezzi male queste sere
+Solo la musica mi tiene insieme, yeah
+Ma se ricordo bene, io e lo stare bene
+Da sempre siamo rette parallele
+Io e lo stare bene
+Rette parallele
+Piacere, Mr. Nobody
