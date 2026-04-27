@@ -1,0 +1,4 @@
+---
+title: "Blondee"
+draft: false
+---

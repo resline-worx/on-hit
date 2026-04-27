@@ -1,0 +1,4 @@
+---
+title: "БРЕДИШЬ"
+draft: false
+---

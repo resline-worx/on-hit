@@ -1,0 +1,4 @@
+---
+title: "BAGARDI"
+draft: false
+---

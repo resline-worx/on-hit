@@ -1,0 +1,35 @@
+---
+title: "Fair"
+artist: "Billy Gillies"
+tags: "Billy Gillies"
+featuring: "Betsy"
+language: "Lyrics"
+draft: false
+---
+You and I can fight this out together
+You and I, we're riding out the storm
+You and I could play this tune forever
+You and I, we're breaking every rule
+
+I know it ain't right
+I know it ain't fair
+To hold on to love, a love that's no longer there
+I know it ain't right
+I know it ain't fair
+To hold on to love, a love that's no longer there
+But I'm holding out and I'm holding on
+Holding out for you
+
+Take a look around, you’ll see we're crumbling
+Piece by piece, we fade into the floor
+Hold it all together but it's breaking
+Endless cycle fated now to fall
+
+I know it ain't right
+I know it ain't fair
+To hold on to love, a love that's no longer there
+I know it ain't right
+I know it ain't fair
+To hold on to love, a love that's no longer there
+But I'm holding out and I'm holding on
+Holding out for you my only love

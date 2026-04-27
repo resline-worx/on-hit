@@ -1,0 +1,39 @@
+---
+title: "How Could I Have Known"
+artist: "Big Thief"
+tags: "Big Thief"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+How could I have known
+In that moment
+What we'd turn into?
+I was alone in that moment
+When I first met you
+
+You reminded me of the river
+With your eyes both green and blue
+You reminded me of everything
+Beautiful and true
+
+Today I walked to the Eiffel Tower
+And I stood out in the rain
+It was some empty power
+I could not explain
+As I stood along that river
+Where the lovers left their chains
+
+It reminded me of everyone
+I had ever tried to claim
+And they say time's the fourth dimension
+They say everything lives and dies
+But our love will live forever
+Though today we said goodbye
+How could I have known
+
+How could I have known
+In that moment
+What we'd turn into?
+I was alone in that moment
+When I first met you

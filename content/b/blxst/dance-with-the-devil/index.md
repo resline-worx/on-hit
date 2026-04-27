@@ -1,0 +1,99 @@
+---
+title: "Dance With The Devil"
+artist: "Blxst"
+tags: "Blxst"
+featuring: "Anderson .Paak"
+language: "Lyrics"
+draft: false
+---
+Ooh, actin' brand new
+She get to actin' so brand new, yeah
+'Cause I never seen you dance like this before
+Where did you get it from?
+It's a bad move
+Ooh, you can dance with the devil if you want to
+It's a bad move
+So I think it's best we leave it on the floor
+
+Yeah, uh
+Is it safe to say you miss what we had? (Miss what we had or no?)
+Girl, I might just save you just one more dance
+Did I give you everything that you asked from me?
+When it all falls down, I guess it's your bad
+
+I checked my schedule
+I can't tell when you fell in love
+You's a devil
+Still I choose to dance with ya
+I checked my schedule
+I can't tell when you fell in love (Love)
+In love (In love)
+
+Uh, you was taking things personal
+I ain't do it on purpose though
+And it hurt to know
+Can't be what it been before
+My inspiration to my verses though
+I ain't even wanna speak to you
+All the sudden, had a drink or two
+And I think of you, but
+I don't wanna go down that road, it's a dead-end
+I should've known to go home, but I slid in
+Wish you well, uh, uh
+Time will tell it all
+Oh, well, yeah
+I'm fine against the wall
+Wish you well (Wish you well)
+I'm not sorry if you fallin', I can't catch you
+I'm just a vibe you might two-step to, no
+
+Yeah, uh
+Is it safe to say you miss what we had? (Miss what we had or no?)
+Girl, I might just save you just one more dance
+Did I give you everything that you asked from me?
+When it all falls down, I guess it's your bad
+
+I checked my schedule
+I can't tell when you fell in love
+You's a devil
+Still I choose to dance with ya
+I checked my schedule
+I can't tell when you fell in love (Love)
+In love (In love)
+
+Ooh, actin' brand new
+She get to actin' so brand new, yeah
+'Cause I never seen you dance like this before
+Where did you get it from?
+It's a bad move
+Ooh, you can dance with the devil if you want to
+It's a bad move
+So I think it's best we leave it on the floor
+
+Devil in a blue dress (Dress)
+White diamonds on your neck
+Red bottoms when you step
+Everybody in the party like, "Who's that?" (Yes)
+But I caught it when you blew that kiss with those maroon lips
+Started with a two-step (One, two step)
+Now they lookin' like, "Damn, y'all ain't got a room yet?"
+Now we could do the dash or save the last dance
+Either way, I ain't mad
+But may I ask
+
+Yeah, uh
+Is it safe to say you miss what we had? (Miss what we had or no?) (If it's safe to say, let me know)
+Girl, I might just save you just one more dance (Could be the history, could be the chemistry)
+Did I give you everything that you asked from me? (Let's leave it all on the dancefloor)
+When it all falls down, I guess it's your bad (Dang)
+
+I checked my schedule
+I can't tell when you fell in love
+You's a devil
+Still I choose to dance with ya
+I checked my schedule
+I can't tell when you fell in love (Love)
+In love (In love)
+
+Mm, mm, mm
+You fell for the trap again

@@ -1,0 +1,90 @@
+---
+title: "Dirty Dawg"
+artist: "BigXthaPlug"
+tags: "BigXthaPlug"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Uh
+(Tony Coles)
+
+Dirty dog, just fucked her and left her
+Gave her E 'cause the bitch show me effort (E for)
+Put a S on my whip 'cause I'm special (Skrrt)
+She wake up to this sausage like breakfast (Eat it up)
+Wastin' muscle, they tryna play catch-up (Nigga, what?)
+2Pac, boy, you better keep your head up (Keep your head up)
+Treat you bad when you broke, kick your bread up (Get the money up)
+Start off vegan, these bags full of leather (Full of gas)
+
+Palm Angels, but I'm a fly devil (I'm fly)
+Oh, that boy stay in dirt like he was a shovel (Like dirt)
+I'll paint that boy red, man, I got a method (On go)
+It's a DOA, he done seen paramedics (Yeah, yeah)
+On the way to the money, only way that I'm headin' (Only way)
+I just fucked on your bitch, she just gave me that Becky (She from)
+I'm connectin' the blocks, you would think that it's Tetris (Oh, yeah)
+Workin' hard every day for pay like a Mexican (I swear)
+Her pussy the best, so I call her my bestie (Call her my bestie)
+There go my best friend, there go my bestie (There she go)
+Bitch, I'm from Texas, we don't ride Lexus (Skrrt)
+Double my cup up, sippin' my beverage (What is it?)
+They say that boy hard like I had an erection (Ooh)
+The game full of bitch niggas, don't get infected (Don't get)
+Got my killers in the cut, don't get dissected (Don't get killed)
+Pay for twenty K, I just made the exit (Ooh)
+He a dirty dog, he fucked her and left her (Yep)
+Too many hoes out here, bitch, you ain't special
+Who gon' collect it? Nah, be respectful (Nah, be)
+Don't lay up and pussy out, don't get respected (Ooh)
+Chasin' money every day, I must be an athlete (I must be)
+Sweet-ass niggas ain't gon' give me a cavity (Heard you here for mine too)
+Heard you fell off, gon' shake back, causal (What the fuck?)
+I least spend a rack on a fit causally (On my momma)
+I got the bank on me like my bitch Ashley (Like Ash)
+Fresh like I'm Prince, I got bills in the air (I got)
+I got hoes comin' in, doubled up by the pair (Doubled up)
+And they don't got pussy, ho, 'bout them hoes, I don't care (I don't fuck on that ho, bring this)
+We gon' fuck up the streets, we got seven dollar shirts
+If he say he got sick, we gon' go 'head make it worse (You know what I mean?)
+He get killed for a ten, R.I.P. (I swear)
+Heard a nigga split his shit with a ARP (Boom)
+
+Dirty dog, just fucked her and left her (I just left)
+Gave her E 'cause the bitch show me effort (Bitch was E)
+Put a S on my whip 'cause I'm special (Skrrt, skrrt)
+She wake up to this sausage like breakfast (Eat it up)
+Wastin' muscle, they tryna play catch-up (Nigga, what?)
+2Pac, boy, you better keep your head up (Keep your head up)
+Treat you bad when you broke, kick your bread up (Get that money up)
+Start off vegan, these bags full of leather (Full of gas)
+
+I'ma stay with this double cup, my money doubled up (It's doubled up)
+I'm sippin' on liquor, this Wock' got me drunk as fuck (Got me drunk as fuck)
+Know we keep up, we don't box, we gon' shoot it up (Gon' shoot this bitch up)
+Shots comin' from everywhere, don't know who the fuck (Who the fuck?)
+Gang fucked up, I really don't know who to trust (Who the fuck I trust?)
+All my niggas' rich, a bitch don't know who to fuck (These bitches fuck everybody)
+These bitches come and go, I really don't give a fuck (I don't give a fuck)
+I'm cool with everybody long as they don't touch this neck (I'm cool 'til they touch it)
+Yeah, I'm really not regular, let me check schedule (Uh-uh)
+She like bitches more than me, she bisexual (What?)
+I gave her that door, that bitch don't be extra (What the fuck?)
+I run through the pack, the plug throwin' me extra (He do)
+She get on my nerves, when she run, she be textin' (She be runnin' on coochie)
+They be broke in real life, on the Instagram flexin' (You know)
+Mix the red with the blue, we drink purple in Texas (Ooh)
+Live my life on the go, I can't wait, bet' be ready (I can't wait)
+Nigga wrap for my body bag, I got some partners doin' thirty for body bags (I swear to God)
+I'm tryna stay out the way, I just made thirty off of turkey bags (I'm on go)
+I let 'em drop the shot, I know how to make a pass (Swish)
+Might as well call me Steve Hood Nash (On God)
+We got a problem, hit him with the step-back (Bah)
+From broke to rich, I don't think that they like it (Boom)
+It get hot in the club, hold up, where the ice at? (They lovin' that)
+
+Dirty dog, just fucked her and left her (I just left the bitch, I gave her nothin')
+Put a S on my whip 'cause I'm special ('Cause I skrrt, eat it up)
+Wastin' muscle, they tryna play catch-up (Like catch-up, keep your head up)
+Treat you bad when you broke, kick your bread up (Get that money up)

@@ -1,0 +1,62 @@
+---
+title: "God Is In This Story"
+artist: "Katy Nichole & Big Daddy Weave"
+tags: "Big Daddy Weave"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+There's torn up pages in this book
+Words that tell me I'm no good
+Chapters that defined me for so long
+But the hands of grace and endless love
+Dusted off and picked me up
+Told my heart that hope is never gone
+
+God is in this story
+God is in the details
+Even in the broken parts
+He holds my heart, He never fails
+When I'm at my weakest
+I will trust in Jesus
+Always in the highs and lows
+The One who goes before me
+God is in this story
+
+So if the storm you're walking through
+Feels like it's too much, and you
+Wonder if He even cares at all
+Hold on tight to what you know
+He promised He won't let you go
+Your song of healing's written in His scars
+
+God is in this story
+God is in the details
+Even in the broken parts
+He holds my heart, He never fails
+When I'm at my weakest
+I will trust in Jesus
+Always in the highs and lows
+The One who goes before me
+God is in this story
+
+If it reads like addiction
+If it reads like disease
+He's the One who frees the prisoner
+He's the healer of all things
+If it reads like depression
+If it reads broken home
+He's the One who holds your sorrow
+He won't leave you here alone
+
+God is in this story
+God is in the details
+Even in the broken parts
+He holds my heart, He never fails
+When I'm at my weakest
+I will trust in Jesus
+Always in the highs and lows
+The One who goes before me
+Always in the highs and lows
+The One who goes before me
+God is in this story

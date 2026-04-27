@@ -1,0 +1,36 @@
+---
+title: "So In Love"
+artist: "Ben Fuller"
+tags: "Ben Fuller"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+(originally from "Kiss Me, Kate" musical)
+
+Strange dear, but true dear
+When I'm close to you, dear
+The stars fill the sky
+So in love with you am I
+
+Even without you
+My arms fold about you
+You know darling why
+So in love with you am I
+
+In love with the night mysterious
+The night when you first were there
+In love with my joy delirious
+When I knew that you could care
+
+So taunt me, and hurt me
+Deceive me, desert me
+I'm yours, till I die
+So in love, so in love
+So in love with you, my love, am I
+
+So taunt me, and hurt me
+Deceive me, desert me
+I'm yours, till I die
+So in love, so in love
+So in love with you, my love, am I

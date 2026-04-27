@@ -1,0 +1,4 @@
+---
+title: "Брутто"
+draft: false
+---

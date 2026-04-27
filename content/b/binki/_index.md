@@ -1,0 +1,4 @@
+---
+title: "binki"
+draft: false
+---

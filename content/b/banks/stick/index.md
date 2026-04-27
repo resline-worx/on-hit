@@ -1,0 +1,73 @@
+---
+title: "Stick"
+artist: "BANKS"
+tags: "BANKS"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Call for shelter 'cause I'm so sick, ah
+You can make it come quick
+Hard to think straight
+'Cause I'm so down for you, licorice stick
+
+Call for shelter 'cause I'm so sick, ah
+You can make it come quick
+Hard to think straight
+'Cause I'm so down for you, licorice stick
+
+I got to take you home
+We're living in hard times, we're living in hard times
+Baby, you think you know
+I think it's about time, that you're gonna make me whine
+
+Baby, you don't wanna leave
+You'd be sorry, 'cause honestly
+I can make you feel better any day
+Look at what you've done for me
+I call it how I see
+You belong with me
+
+Call for shelter 'cause I'm so sick, ah
+You can make it come quick
+Hard to think straight
+'Cause I'm so down for you, licorice stick
+
+Call for shelter 'cause I'm so sick, ah
+You can make it come quick
+Hard to think straight
+'Cause I'm so down for you, licorice stick
+
+Tell me I got you, baby
+I wanna know how you taste
+I wanna know how you taste
+
+Now that you keep me warm
+Baby I call you fire
+And maybe I'll be your fire
+
+Baby, you don't wanna leave
+You'd be sorry, 'cause honestly
+I can make you feel better any day
+Look at what you've done for me
+I call it how I see
+You belong with me
+
+Call for shelter 'cause I'm so sick, ah
+You can make it come quick
+Hard to think straight
+'Cause I'm so down for you, licorice stick
+
+Call for shelter 'cause I'm so sick, ah
+You can make it come quick
+Hard to think straight
+'Cause I'm so down for you, licorice stick
+
+Tell her you love her, tell her you're down for her
+Tell her you're down for it
+Tell her you love her, tell her you're down for her
+Tell her you're down for it
+Tell her you love her, tell her you're down for her
+Tell her you're down for it
+Tell her you love her, tell her you're down for her
+Tell her you're down for it

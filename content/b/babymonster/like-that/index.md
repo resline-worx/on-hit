@@ -1,0 +1,91 @@
+---
+title: "LIKE THAT"
+artist: "BABYMONSTER"
+tags: "BABYMONSTER"
+featuring: ""
+language: "가사"
+draft: false
+---
+I see that look upon your face
+Something my mind cannot erase
+If we keep staring then I might have to
+Might have to start to walk your way
+I wanna hear what you would say
+You got high standards and I do too
+
+'Cause all those girls (They don't)
+Know what you need (They don't)
+But I know, I know the way, the way
+To make, to make sure you never leave
+
+If I come close, baby, would you like that?
+If I give some, would you give it right back?
+If I show you that I know where it's at
+Baby, would you like that?
+Baby, would you like that?
+Say you want love, boy, I know what that means
+Make you feel way better than in your dreams
+If I show you that I know where it's at
+Baby, would you like that?
+Baby, would you like that?
+
+Yo, it's like that like that
+How you run it right back
+Know you on the right track
+Queen ace blackjack
+I be thinking way too much
+I need to let it go
+You be running through my mind
+And I'ma let it show
+
+'Cause ain't nobody stepping up to me
+And saying nothing when I calling you
+Be running eye to eye we never fronting, yeah
+We zoning bet we stunting on and on and on and
+To the top, baby boy, we be rolling
+
+'Cause all those girls (They don't)
+Know what you need (They don't)
+But I know, I know the way, the way
+To make, to make sure you never leave
+
+If I come close, baby, would you like that?
+If I give some, would you give it right back?
+If I show you that I know where it's at
+Baby, would you like that?
+Baby, would you like that?
+Say you want love, boy, I know what that means
+Make you feel way better than in your dreams
+If I show you that I know where it's at
+Baby, would you like that?
+Baby, would you like that?
+
+I want you in my arms
+In my arms, my arms (That's where you need to be)
+In my arms, in my arms
+My arms (That's where you need to be)
+
+Ah-ah, ah-ah
+But I know, I know the way, the way
+To make, to make sure you never leave
+
+If I come close, baby, would you like that?
+If I give some, would you give it right back?
+If I show you that I know where it's at
+Baby, would you like that?
+Baby, would you like that?
+Say you want love, boy, I know what that means
+Make you feel way better than in your dreams
+If I show you that I know where it's at
+Baby, would you like that?
+Baby, would you like that?
+If I come close, baby, would you like that?
+If I give some, would you give it right back?
+If I show you that I know where it's at
+Baby, would you like that?
+Baby, would you like that?
+Say you want love, boy, I know what that means
+Make you feel way better than in your dreams
+If I show you that I know where it's at
+Baby, would you like that?
+Baby, would you like that?

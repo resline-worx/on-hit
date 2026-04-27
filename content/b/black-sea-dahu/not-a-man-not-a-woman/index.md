@@ -1,0 +1,21 @@
+---
+title: "Not a Man, Not a Woman"
+artist: "Black Sea Dahu"
+tags: "Black Sea Dahu"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+I’m not a man
+I’m not a woman
+So many years I had no love for me
+Slow down
+Slow heal, heal
+
+I’m not a child
+Oh I am not whole
+So many things I saw now can’t unsee
+Slow down
+Slow heal, heal, heal, heal
+
+Mmm Mmm Mmm Mmm Mmm Mmm Mmm Mmm Mmm

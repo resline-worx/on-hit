@@ -1,0 +1,4 @@
+---
+title: "Blanco"
+draft: false
+---

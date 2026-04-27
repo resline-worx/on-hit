@@ -1,0 +1,50 @@
+---
+title: "For My Hand"
+artist: "Burna Boy"
+tags: "Burna Boy"
+featuring: "Ed Sheeran"
+language: "Lyrics"
+draft: false
+---
+I wanna be in your life until the night is over
+I wanna hold you so tight, so tight, come in closer
+It's been a hell of a ride for every single moment
+You were there by my side
+
+Whenever I'm broken, you make me feel whole
+Whenever I'm lonely, you're there for my soul
+Wherever you are, girl, that's where I call my home
+Whenever you doubt it, I'll be lettin' you know
+
+Woah, girl, I want to be dancin' with you forever
+You see through the storm and take me as I am
+Baby, it's magic any time that we're together
+I make, I just love you and hold you for my hand
+
+Hold you for my hand, my hand, hand
+Hold you for my hand, hold you for my hand
+
+Over and over again, yeah, my love is burning, baby
+Feels like time is frozen and the night is for us
+And we're alone again and every moment's golden, yeah
+Feelings I've been holding in, it must be love
+
+Whenever I'm broken, you make me feel whole (Ooh)
+Whenever I'm lonely, you're there for my soul (Ooh)
+Wherever you are, girl, that's where I call my home
+Whenever you doubted, I'll be lettin' you know
+
+Woah, girl, I want to be dancin' with you forever
+You see through the storm and take me as I am
+Baby, it's magic any time that we're together
+I make, I just love you and hold you for my hand
+
+Hold you for my hand, my hand, hand
+Hold you for my hand, hold you for my hand
+Hold you for my hand, my hand, hand
+Hold you for my hand, hold you for my hand
+
+I wanna be in your life until the night is over
+I wanna hold you so tight, so tight, come in closer
+I wanna be in your life until the night is over
+Until the night is over, until the night is over

@@ -1,0 +1,43 @@
+---
+title: "Who Is"
+artist: "Bruno Mars"
+tags: "Bruno Mars"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Oh, I was perfect for the circus
+If she dared me I'd do it
+Love makes you stupid
+I gave it up
+But I guess it was not enough
+'Cause she never seemed satisfied, oh
+
+I know I'm not perfect (Oh)
+But at the end of the day who is? (Oh)
+She wanted someone that's perfect
+Okay, but can you tell me who is?
+(Oh, oh, oh)
+(Oh, oh oh)
+
+She set the bar just above the stars
+A rocket couldn't reach it, but I still kept on reaching
+She watched me try at least a thousand times
+If she loved me she'd stop me, but no (Oh)
+
+I know I'm not perfect (Oh)
+But at the end of the day who is? (Oh)
+She wanted someone that's perfect
+OK, but can you tell me who is?
+
+I saw something worth my future
+So wrong, so wrong
+In my mind I was all it took, but I guess I wasn't wrong (Oh)
+
+I know I'm not perfect (Oh)
+But at the end of the day who is? (Oh)
+She wanted someone that's perfect
+Okay, but can you tell me who is?
+
+Oh, oh, oh
+Oh, oh, oh

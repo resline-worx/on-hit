@@ -1,0 +1,57 @@
+---
+title: "Pictures On A Wall"
+artist: "Bryan Ferry & Amelia Barratt"
+tags: "Bryan Ferry"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Crushing up the ice
+For the winter party
+I used to live for chaos
+Now with the outhouse
+I know the sound of a climbing bat
+How to mow correctly
+The more frequently you mow
+The denser the lawn will be
+Correctly now, she says
+Well it's a start, I say
+But what I want
+Is to hang pictures on a wall
+
+Have you ever owned a trap for a mouse?
+In the old days it was a wine bottle
+The door a cork closed by hand
+Mine's glass
+With a self-closing entrance
+That keeps the creature in
+It was sold to me
+As a highly sensitive catcher
+For the sake of the children
+I release them into the park
+The mice find their way back and often
+It's at a party
+Nothing to do with the people
+More like the pull
+Of a petrol station at night
+
+What is the difference between ash
+And snow
+She asked me in the interview
+Where are your awards
+And have you ever seen a greenhouse
+Re-glazed
+Surely, I said, in the first instance
+One is required to smash every single pane
+Her can of cola cracked
+Joking aside, I said
+Now hand me a brush
+
+I'm hosing down the roof when I think of it
+The best arrangements
+They come in a daydream
+I hear her take a snap
+She must only see the base of me
+The footprints of my swinging feet
+The fine spray of water
+Will it reach her

@@ -1,0 +1,64 @@
+---
+title: "Gratitude"
+artist: "Brandon Lake"
+tags: "Brandon Lake"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+All my words fall short
+I got nothing new
+How could I express
+All my gratitude?
+
+I could sing these songs
+As I often do
+But every song must end
+And You never do
+
+So I throw up my hands
+And praise You again and again
+'Cause all that I have is a
+Hallelujah, hallelujah
+And I know it's not much
+But I've nothing else fit for a king
+Except for a heart singing
+Hallelujah, hallelujah
+
+I've got one response
+I've got just one move
+With my arms stretched wide
+I will worship You
+
+So I throw up my hands
+And praise You again and again
+'Cause all that I have is a
+Hallelujah, hallelujah
+And I know it's not much
+But I've nothing else fit for a king
+Except for a heart singing
+Hallelujah, hallelujah
+
+So come on my soul, oh, don't you get shy on me
+Lift up your song, 'cause you've got a lion
+Inside of those lungs
+Get up and praise the Lord
+Oh, come on my soul, oh, don't you get shy on me
+Lift up your song, 'cause you've got a lion
+Inside of those lungs
+Get up and praise the Lord
+Come on my soul, oh, don't you get shy on me
+Lift up your song, 'cause you've got a lion
+Inside of those lungs
+Get up and praise the Lord, hey
+Praise the Lord, praise the Lord
+Praise the Lord
+
+So I throw up my hands
+Praise You again and again
+'Cause all that I have is a
+Hallelujah, hallelujah
+And I know it's not much
+But I've nothing else fit for a king
+Except for a heart singing
+Hallelujah, hallelujah

@@ -1,0 +1,68 @@
+---
+title: "Brand New Man"
+artist: "Brooks & Dunn & Warren Zeiders"
+tags: "Brooks & Dunn"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Well the whole town's talking
+'Bout the line I'm walking
+That leads right to your door
+Oh how I used to roam
+I was a rolling stone
+
+I used to have a wild side
+They say a country-mile-wide
+I'd burn those beer joints down
+That's all changed now
+You turned my life around
+
+[Chorus:]
+I saw the light
+I've been baptised
+By the fire in your touch
+And the flame in your eyes
+I'm born to love again
+I'm a brand-new man
+
+I used to love 'em and leave 'em
+Oh, I'd brag about my freedom
+How no one could tie me down
+Then I met you
+Now my heart beats true
+
+Baby you and me together
+Feels more like "forever"
+Than anything I've ever known
+We're right on track
+I ain't looking back
+
+I saw the light
+I've been baptised
+By the fire in your touch
+And the flame in your eyes
+Born to love again
+I'm a brand-new man
+
+I saw the light
+I've been baptised
+By the fire in your touch
+And the flame in your eyes
+Born to love again
+I'm a brand-new man
+
+I saw the light
+I've been baptised
+By the fire in your touch
+And the flame in your eyes
+Born to love again
+I'm a brand-new man
+
+I saw the light
+I've been baptised
+By the fire in your touch
+And the flame in your eyes
+Born to love again
+
+I'm a brand-new man

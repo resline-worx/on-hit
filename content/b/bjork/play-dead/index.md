@@ -1,0 +1,41 @@
+---
+title: "Play Dead"
+artist: "Björk"
+tags: "Björk"
+featuring: "David Arnold"
+language: "Lyrics"
+draft: false
+---
+Darling stop confusing me
+With your wishful thinking
+Hopeful embraces
+Don't you understand?
+I have to go through this
+I belong to here
+Where no-one cares
+And no-one loves
+No light, no air to live in
+A place called Hate
+The city of fear
+
+I play dead
+It stops the hurting
+I play dead
+And the hurting stops
+
+It's sometimes just like sleeping
+Curling up inside my private tortures
+I nestle into pain
+Hug suffering
+Caress every ache
+
+I play dead
+It stops the hurting
+I play dead
+It stops the hurting
+I play dead
+It stops the hurting
+I play dead
+It stops the hurting
+I play dead
+It stops the hurting

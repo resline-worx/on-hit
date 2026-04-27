@@ -1,0 +1,72 @@
+---
+title: "DtMF"
+artist: "Bad Bunny"
+tags: "Bad Bunny"
+featuring: ""
+language: "Letra"
+draft: false
+---
+Eh-eh, eh-eh, eh-eh, eh-eh
+
+Otro sunset bonito que veo en San Juan
+Disfrutando de todas esas cosas que extrañan los que se van (Van, van)
+Disfrutando de noche' de esas que ya no se dan (Dan, dan)
+Que ya no se dan (Dan)
+Pero queriendo volver a la última vez
+Y a los ojos te miré
+Y contarte las cosas que no te conté (Te parece' a mi crush, jaja)
+Y tirarte la' foto' que no te tiré (Acho, jura'o te ves bien linda, déjame tirarte una foto)
+Ey, tengo el pecho pela'o, me dio una matá'
+El corazón dándome patá'
+Dime, baby, ¿dónde tú está'?
+Pa' llegarle con Roro, Julito, Cristal
+Roy, Edgar, Seba, Óscar, Dalnelly, Big J, tocando batá
+Hoy la calle la dejamo' 'esbaratá
+Y sería cabrón que tú me toque' el güiro
+Yo veo tu nombre y me salen suspiro'
+No sé si son petardo' o si son tiro'
+Mi blanquita, perico, mi kilo
+Yo estoy en PR, tranquilo, pero
+
+Debí tirar más fotos de cuando te tuve
+Debí darte más beso' y abrazo' las vece' que pude
+Ey, ojalá que los mío' nunca se muden
+Y si hoy me emborracho, pues que me ayuden
+Debí tirar más foto' de cuando te tuve
+Debí darte más beso' y abrazo' las veces que pude
+Ojalá que los mío' nunca se muden
+Y si hoy me emborracho, pues que me ayuden
+
+Ey, hoy voy a estar con abuelo to'l día, jugando dominó
+Si me pregunta si aún pienso en ti, yo le digo que no
+Que mi estadía cerquita de ti ya se terminó, ya se terminó
+Ey, que prendan la' máquina', voy pa' Santurce
+Aquí todavía se da caña
+Chequéate las babie', diablo, mami, qué dulce
+Hoy yo quiero beber, beber, beber
+Y hablar mierda hasta que me expulsen
+'Toy bien loco ('Toy bien loco), 'toy bien loco ('Toy bien loco)
+Cabrón, guía tú, que hasta caminando yo estoy que choco
+'Toy bien loco ('Toy bien loco), 'toy bien loco ('Toy bien loco)
+Vamo' a disfrutar, que nunca se sabe si nos queda poco
+Debí tirar más f—
+
+Gente, lo' quiero con cojone', los amo
+Gracias por estar aquí, de verdad
+Para mí e' bien importante que estén aquí
+Cada uno de ustede' significa mucho para mí
+Así que, vamo' pa' la foto, vengan pa'cá
+Métase to'l mundo, to'l corillo, vamo'
+Zumba
+
+Ya Bernie tiene el nene y Jan la nena'
+Ya no estamo' pa' la movie' y las cadena'
+'Tamos pa' las cosa' que valgan la pena
+Ey, pa'l perreo, la salsa, la bomba y la plena
+Chequéate la mía cómo es que suena
+
+Debí tirar más fotos de cuando te tuve
+Debí darte más besos y abrazo' las veces que pude
+Ojalá que los mío' nunca se muden
+Y que tú me envíe' más nude'
+Y si hoy me emborracho que Vero me ayude

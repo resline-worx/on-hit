@@ -1,0 +1,53 @@
+---
+title: "Like Animals"
+artist: "BTS"
+tags: "BTS"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Take me into your deep
+I wanna lay in your world
+So what, your shadow's a mess
+I'm walkin' with my own dirt
+
+We can go all night
+Don't you close your eyes
+Don't you fear the light
+All night
+
+If you wanna be animals
+Baby, we can be animals
+Eat this life 'til your heart is full
+If you want, you can have it all
+
+Six feet down in the sand
+There's creatures that made a hole
+Do speak, I'm begging you, please
+There's beauty outside control
+
+Oh, we can go all night
+We can go all night
+Yeah, we should go all night
+All night
+
+If you wanna be animals
+Baby, we can be animals
+Eat this life 'til your heart is full
+If you want, you can have it all
+
+Got you in the wild
+Somewhere so far
+With your claws sharp
+And them fangs out
+Now you see a whole land full of animals
+None of us are tameable
+None of us are tameable
+
+Heart untameable
+Go and take it all
+
+If you wanna be animals
+Baby, we can be animals
+Eat this life 'til your heart is full
+If you want, you can have it all

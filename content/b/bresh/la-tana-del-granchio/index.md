@@ -1,0 +1,65 @@
+---
+title: "La tana del granchio"
+artist: "Bresh"
+tags: "Bresh"
+featuring: ""
+language: "testo"
+draft: false
+---
+Nella tana del granchio c'è una canzone
+Ho posato i miei vestiti al sole
+Ti ho vista piangere dietro alle mie parole
+Ma non sapevo cos'altro dire di te
+Ora che siamo soli mi puoi pure parlare
+Guardati intorno non c'è nessuno
+Non far così, non mi giudicare
+Ho una parola sbagliata per ogni frase
+Sono soltanto un uomo e non ci so fare
+E anche se tu non lo vuoi sapere
+Sappi però che alla fine ti voglio bene
+
+Sono una madre che si sgola
+Una testa che gira ancora
+Una chitarra che non suona
+Una borsa piena di buchi
+Se capisci che non ti amo
+Sei una sirena che non nuota
+Cosa puoi dire?
+Fammi solo sapere quando vuoi guarire
+Dall'espressione hai qualcosa da dire per me
+Ma lo sento, non mi dai due lire
+
+Un sacchetto di plastica tiene i nostri due costumi bagnati
+Ce li siamo dimenticati
+Nella macchina che è rimasta sotto al sole per tutta l'estate
+Ad ottobre li ho ritrovati
+Lascio la via per te
+Ora che non è più un sì
+Camera mia non è una metropoli
+Che incubo stare ad aspettare in un monolocale
+Sei fuori a carnevale
+
+Sono una madre che si sgola
+Una testa che gira ancora
+Una chitarra che non suona
+Una borsa piena di buchi
+Se capisci che non ti amo
+Sei una sirena che non nuota
+Cosa puoi dire?
+Fammi solo sapere quando vuoi guarire
+Dall'espressione hai qualcosa da dire per me
+Ma lo sento, non mi dai due lire
+
+Se il mare si è salato, è perché un marinaio ci ha pianto sopra
+Se han fatto il calendario, è perché ti vorrei fare santa ora
+Senti che forte il vento
+Vento che non si posa
+
+Cosa puoi dire?
+Fammi solo sapere quando vuoi guarire
+Dall'espressione hai qualcosa da dire per me
+Ma lo sento, non mi dai due lire
+Ho bisogno solo di riuscire a convincere te
+Non solo te
+Ho bisogno solo di riuscire a convincere te
+Ma lo sento, non mi dai due lire
