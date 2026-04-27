@@ -17,5 +17,8 @@
   "bugs": {
     "url": "https://github.com/resline-worx/on-hit/issues"
   },
-  "homepage": "https://github.com/resline-worx/on-hit#readme"
+  "homepage": "https://github.com/resline-worx/on-hit#readme",
+  "devDependencies": {
+    "hugo-bin": "^0.149.2"
+  }
 }
