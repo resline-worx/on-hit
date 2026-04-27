@@ -1,0 +1,40 @@
+---
+title: "The Seventh Circle"
+artist: "Architects"
+tags: "Architects"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+I don't wanna dream anymore
+I've buried it all too deep
+Every waking moment is war
+This is the seventh circle
+
+I'm stepping off the edge
+I think I'd prefer oblivion
+I feel the blood drain from my face
+Maybe it's better to never have been
+
+Too afraid to connect
+What can I do to repent?
+I've got to settle my regrets
+But first I've got to accept
+Some of us burn too bright
+I'm holding on too tight
+I think I'm done with reality
+
+I don't wanna dream anymore
+I've buried it all too deep
+Every waking moment is war
+This is the seventh circle
+
+I don't wanna dream anymore
+I've buried it all too deep
+Every waking moment is war
+This is the seventh circle
+
+I don't wanna dream anymore
+I've buried it all too deep
+Every waking moment is war
+This is the seventh circle

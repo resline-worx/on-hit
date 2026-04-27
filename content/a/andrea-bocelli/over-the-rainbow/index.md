@@ -1,0 +1,27 @@
+---
+title: "Over The Rainbow"
+artist: "Andrea Bocelli, Matteo Bocelli & Virginia Bocelli"
+tags: "Andrea Bocelli"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+(originally by Judy Garland)
+
+Somewhere over the rainbow way up high
+There's a land that I heard of once in a lullaby
+Somewhere over the rainbow skies are blue
+And the dreams that you dare to dream really do come true
+
+Someday I'll wish upon a star
+And wake up where the clouds are far
+Behind me (Behind me)
+Where troubles melt like lemon drops
+Away above the chimney tops
+That's where you'll find me
+
+Somewhere over the rainbow bluebirds fly
+Birds fly over the rainbow
+Why then, oh, why can't I?
+Birds fly over the rainbow
+Why then, oh, why can't I?

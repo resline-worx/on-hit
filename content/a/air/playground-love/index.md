@@ -1,0 +1,24 @@
+---
+title: "Playground Love"
+artist: "Air"
+tags: "Air"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+(from "The Virgin Suicides" soundtrack)
+
+I'm a high school lover, and you're my favorite flavor
+Love is all, all my soul
+You're my playground love
+
+Yet my hands are shaking
+I feel my body remains, time's no matter, I'm on fire
+On the playground, love
+
+You're the piece of gold that flashes on my soul
+Extra time, on the ground
+You're my playground love
+
+Anytime, anywhere,
+You're my playground love

@@ -1,0 +1,55 @@
+---
+title: "Splinters"
+artist: "Annisokay"
+tags: "Annisokay"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+I saw you in the rear-view mirror
+Streetlights sketching you in gold
+Just a nod, then you were gone
+Didn't know you'd come undone
+
+Moments trapped in window glass
+Your laugh still dancing in the air
+If I'd known that it would end
+I would've stayed, I would've cared
+
+One more chance is all I need
+To hold you close, never letting you leave
+Now I'm living in the past
+Holding splinters made of glass
+
+One more chance is all I need
+To hold you close, not letting you leave
+Now I'm living in the past
+Holding splinters made of glass
+
+The promises I never spoke
+Will always echo through my chest
+I didn't see you fade like smoke
+With only silence for a guest
+
+Little traces still remain
+Like your cup still by the sink
+Another crack across the pane
+And for one moment I cannot think
+
+One more chance is all I need
+To hold you close, never letting you leave
+Now I'm living in the past
+Holding splinters made of glass
+
+One more chance is all I need
+To hold you close, not letting you leave
+Now I'm living in the past
+Holding splinters made of-
+
+(Splinters made of glass)
+Holding splinters made of glass
+One more chance is all I need
+(Splinters made of glass)
+One more chance is all I need
+Splinters made of glass
+Splinters made of glass

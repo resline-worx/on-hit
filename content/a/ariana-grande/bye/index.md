@@ -1,0 +1,77 @@
+---
+title: "bye"
+artist: "Ariana Grande"
+tags: "Ariana Grande"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Bye-bye
+Boy, bye
+Bye-bye
+Boy, bye
+It's over, it's over, oh yeah
+
+This ain't the first time I've been hostage to these tears
+I can't believe I'm finally moving through my fears
+At least I know how hard we tried, both you and me
+Didn't we?
+Didn't we?
+
+So I grab my stuff
+Courtney just pulled up in the driveway
+It's time
+
+Bye-bye
+Boy, bye
+Bye-bye
+It's over, it's over, oh yeah
+Bye-bye
+I'm taking what's mine
+Yeah
+Bye-bye
+It's over, it's over, oh yeah
+
+Ya know?
+I'm stronger than I think
+Usually, I'd join you on the floor
+But this dance ain't for me
+Boy, just turn the music up
+Maybe someday we'll look back with love
+Didn't think you'd lose me
+Now it's just too late to choose me
+
+So I grab my stuff
+Courtney just pulled up in the driveway
+It's time (it's time)
+
+Bye-bye
+Boy, bye (boy, bye)
+Bye-bye
+It's over, it's over, oh yeah
+Bye-bye
+I'm taking what's mine, yeah (taking what's mine)
+Bye-bye
+It's over, it's over, oh yeah
+
+Now it's certainly bittersweet
+This hook feels too hard to sing
+But it's better than repeat (than repeat, than repeat, than repeat)
+
+Bye-bye (bye-bye)
+Boy, bye (boy, bye)
+Bye-bye
+It's over, it's over, oh yeah (bye)
+Bye-bye (bye-bye)
+I'm taking what's mine (taking what's mine)
+Bye-bye
+It's over, it's over, oh yeah
+
+Bye-bye (bye-bye)
+Boy, bye
+Bye-bye
+It's over, it's over, oh yeah (bye)
+Bye-bye (bye-bye)
+I'm taking what's mine, yeah (I'm taking what's mine)
+Bye-bye
+It's over, it's over, oh yeah

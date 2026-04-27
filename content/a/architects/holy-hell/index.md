@@ -1,0 +1,61 @@
+---
+title: "Holy Hell"
+artist: "Architects"
+tags: "Architects"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Maybe we'll never learn?
+The fire at the gates is our saving grace
+Remember, we were born to burn
+There is a holy hell, where we can save ourselves
+There is a holy hell, where we can save ourselves
+
+We will be cast out of paradise
+It's a long ascent out of the black
+But we all have to sacrifice
+Hang the iconoclast
+And kiss the feet of the amnesiac
+'Cause the moment is dead when I'm lost in the past
+
+Maybe we'll never learn?
+The fire at the gates is our saving grace
+Remember, we were born to burn
+There is a holy hell, where we can save ourselves
+
+But now the rivers are running red
+And the skies have been set ablaze
+I've been fearing the worst again
+Heavenly terrorist
+Have you been longing over yesterday?
+Don't forget to breathe when the knife begins to twist
+Fuck this self pity
+It's not that hard to see
+We get one chance
+These wounds will set me free
+There's poison on the key
+It brings you to your knees
+But even the mountains erode in the rain
+
+A single spark can start a forest fire
+Light one match and burn down the empire
+There's gold buried in the blue, oh
+There's gold buried in the blue
+
+Holy Hell, I've got nothing left to lose
+And I can tell there's gold buried in the blue
+
+Maybe we'll never learn?
+The fire at the gates is our saving grace
+Remember, we were born to burn
+There is a holy hell, where we can save ourselves
+
+Holy Hell, I've got nothing left to lose
+And I can tell there's gold buried in the blue
+
+But even the mountains erode in the rain
+A single spark can start a forest fire
+Light one match and burn down the empire
+There's gold buried in the blue
+There's gold buried in the blue

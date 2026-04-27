@@ -1,0 +1,21 @@
+---
+title: "To The Death"
+artist: "Architects"
+tags: "Architects"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+When In Troy
+Do as the Greeks do
+This is treacherous
+This is cold hearted betrayal
+Move in for the kill
+And you’re all traitors
+We’ll fight them to the death
+Burn down the houses
+Loot all the churches
+And we found the time to pray
+Pray that our justice be done
+Pray by the light of the moon
+That we’re not here

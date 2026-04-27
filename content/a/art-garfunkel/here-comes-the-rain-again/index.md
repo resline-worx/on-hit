@@ -1,0 +1,58 @@
+---
+title: "Here Comes The Rain Again"
+artist: "Art Garfunkel jr. & Art Garfunkel"
+tags: "Art Garfunkel"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+(originally by Eurythmics)
+
+Here comes the rain again
+Falling on my head like a memory
+Falling on my head like a new emotion
+I want to walk in the open wind
+I want to talk like lovers do
+Want to dive into your ocean
+Is it raining with you?
+
+So, baby, talk to me
+Like lovers do
+Walk with me
+Like lovers do
+Talk to me
+Like lovers do
+
+Here comes the rain again
+Raining in my head like a tragedy
+Tearing me apart like a new emotion (Ooh yeah)
+I want to breathe in the open wind
+I want to kiss like lovers do
+Want to dive into your ocean
+Is it raining with you?
+
+So, baby, talk to me
+Like lovers do
+Walk with me
+Like lovers do
+Talk to me
+Like lovers do
+
+Talk to me
+Like lovers do
+
+Here comes the rain again
+Falling on my head like a memory
+Falling on my head like a new emotion
+I want to walk in the open wind
+I want to talk like lovers do
+Want to dive into your ocean
+Is it raining with you? (Ooh yeah)
+
+Here comes the rain again
+Falling on my head like a memory
+Falling on my head like a new emotion
+I want to walk in the open wind
+I want to talk like lovers do
+Want to dive into your ocean
+Is it raining with you?

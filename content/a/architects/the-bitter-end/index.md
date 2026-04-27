@@ -1,0 +1,14 @@
+---
+title: "The Bitter End"
+artist: "Architects"
+tags: "Architects"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+When time resets, we all become zero.
+Decimals apart, take us back to the start.
+Tear down the walls, that were built to divide.
+Can you feel that fire growing?
+We're standing on the edge of the event horizon,
+Moments before the Earth starts to flatline.

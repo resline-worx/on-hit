@@ -1,0 +1,20 @@
+---
+title: "Suck A Dick Jockey"
+artist: "Afroman"
+tags: "Afroman"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+i always wanted to be on the fucking radio
+but they wouldn't play me though
+whack ass corporate world dj
+only play what the pencil neck geeks say play
+i stopped making songs for them
+i started making songs for me
+whats wrond with me
+i sold it on the street, they love my beat
+homemade talent packed with heat
+somebody put me on napster
+next thing you know, im on the radio, in San Diego
+howard stern gave me a spin

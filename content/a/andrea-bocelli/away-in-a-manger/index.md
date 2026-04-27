@@ -1,0 +1,42 @@
+---
+title: "Away In A Manger"
+artist: "Andrea Bocelli, Matteo Bocelli & Virginia Bocelli"
+tags: "Andrea Bocelli"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+(originally by William James Kirkpatrick)
+
+Away in a manger
+No crib for a bed
+The little Lord Jesus
+Lay down His sweet head
+
+The stars in the sky
+Look down where He lay
+The little Lord Jesus
+Asleep on the hay
+
+The cattle are lowing
+The poor baby wakes
+But little Lord Jesus
+No crying He makes
+
+I love Thee, Lord Jesus
+Look down from the sky
+And stay by my side
+'Til morning is nigh
+
+Be near me, Lord Jesus
+I ask Thee to stay
+Close by me forever
+And love me I pray
+
+Bless all the dear children
+In Thy tender care
+And take us to heaven
+To live with Thee there
+
+Take us to heaven
+To live with Thee there

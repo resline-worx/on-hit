@@ -1,0 +1,4 @@
+---
+title: "Aminé"
+draft: false
+---

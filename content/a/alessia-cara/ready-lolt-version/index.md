@@ -1,0 +1,57 @@
+---
+title: "Ready (LOLT Version)"
+artist: "Alessia Cara"
+tags: "Alessia Cara"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+I think it's safe to say that you will always change
+New colours day-to-day, my friend, you are a hurricane
+The look on your face, all the things you say
+Send me to outer space, my friend, you test my patience
+
+Don't you just push me out now
+You got me into this mess, who's gonna get me out?
+Why were you pulling me down
+If you had things to figure out?
+
+Oh, you're not ready for, ready for, ready for, ready for me
+Oh, you're not ready for, ready for, ready for, ready for me
+No, no, no
+Go steady your, your heavy heart until you're free
+Until you're ready for, ready for, ready for, ready for me
+Until you're ready, ready for me
+
+Why do I care so much about you? Boy, you know I do
+I think a million thoughts, but only half get through to you
+You start a million fires just to see what they can do
+But then you freeze up like winter season in June
+I wanna climb into your mind and turn on all the lights
+Read all your secrets, see if you wonder about mine
+We're just kids tryin' to understand the world
+You're still only a boy who's scared of a good girl
+
+You know you're not ready for, ready for, ready for, ready for me
+Oh, you're not ready for, ready for, ready for, ready for me
+No, no, no
+Go steady your, your heavy heart until you're free
+Until you're ready for, ready for, ready for, ready for me
+Until you're ready, ready for
+
+I won't be waiting for you to come around, to come around
+I won't be waiting for you, but I'll be around, I'll be around
+
+Don't you just push me out now
+You got me into this mess, who's gonna get me out?
+Why were you pulling me down
+If you had things to figure out?
+
+Oh, you're not ready for, ready for, ready for, ready for me
+Oh, you're not ready for, ready for, ready for, ready for me
+No, no, no, no
+Go steady your, your heavy heart until you're free
+Until you're ready for, ready for, ready for, ready for me
+Until you're ready, ready for me
+
+Until you're ready, ready for me

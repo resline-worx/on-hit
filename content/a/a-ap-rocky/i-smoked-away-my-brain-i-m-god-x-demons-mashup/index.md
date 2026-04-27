@@ -1,0 +1,58 @@
+---
+title: "I Smoked Away My Brain (I'm God x Demons Mashup)"
+artist: "A$AP Rocky"
+tags: "A$AP Rocky"
+featuring: "Imogen Heap & Clams Casino"
+language: "Lyrics"
+draft: false
+---
+How did you know?
+It's what I've always wanted
+Could never have too many of these
+Will you quit kicking me under the table?
+I'm trying, will somebody make her (I just live, I live day by day)
+Shut up about it, can we settle down please? (Fighting demons)
+
+I smoked away my brain, I think I'm going dumb
+Cocaine up on my gums, I think they're going numb
+I'm having stomach pains, now I'm throwing up
+Cause I'm a microphone fiend, give me the bass
+Give me the beat, and let me lean, tap the vein, let it stream
+Feel the pain, young Martin Luther King, with a dream
+That one day me and my team, we can make it with this rapping
+Now we swagging, making money in Manhattan, trick, what's happening?
+They try to intellect with indirection just to test you
+A rebel until my death, it's in my flesh, it's in my vessels
+Fuck the clique you with, I'm finna fuck the bitch you next to
+Fuck a metrosexual, suck a dick, I'm disrespectful
+You know the kid get it, get-get sick spit
+Clip spit quick split quick hit kids women
+Oh, that's your girl, huh? Well, I just hit it
+It's A$AP nigga, live with it, swag
+
+Demons posted all around me, I can't beat 'em all alone
+Thinking 'bout you, thinking 'bout you, add it to your thoughts
+These evil thoughts, they start to drown me, Lord, don't leave me all alone
+Thinking 'bout you, thinking 'bout you, add it to your thoughts
+Demons posted all around me, I can't beat 'em all alone
+Thinking 'bout you, thinking 'bout you, add it to your thoughts
+These evil thoughts, they start to drown me, Lord, don't leave me all alone
+Thinking 'bout you, thinking 'bout you, add it to your thoughts
+
+Aw, yeah, aw, yeah (It's what... I think...) (Bite tongue, deep breaths)
+(Let the beat chill)
+Aw, yeah, aw, yeah (It's what... I think...) (Bite tongue, deep breaths)
+(Let the beat chill)
+Aw, yeah, aw, yeah (It's what... I think...) (Bite tongue, deep breaths)
+(Let the beat chill)
+Aw, yeah, aw, yeah (It's what... I think...) (Bite tongue, deep breaths)
+(I'm a hipster by heart, but I can tell you how the streets feel)
+
+Demons posted all around me, I can't beat 'em all alone
+Thinking 'bout you, thinking 'bout you, add it to your thoughts
+These evil thoughts, they start to drown me, Lord, don't leave me all alone
+Thinking 'bout you, thinking 'bout you, add it to your thoughts
+Demons posted all around me, I can't beat 'em all alone
+Thinking 'bout you, thinking 'bout you, add it to your thoughts
+These evil thoughts, they start to drown me, Lord, don't leave me all alone
+Thinking 'bout you, thinking 'bout you, add it to your thoughts

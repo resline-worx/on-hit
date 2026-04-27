@@ -1,0 +1,104 @@
+---
+title: "SAD GIRLZ LUV MONEY"
+artist: "Amaarae"
+tags: "Amaarae"
+featuring: "Moliy"
+language: "Lyrics"
+draft: false
+---
+Dollars all around
+Oh there's dollars all around
+Dolla, dolla, bills, yeah
+Dolla, dolla, bills
+You're on my frequency
+You've been staring at me, since you walked in the bar
+I don't really know how long though
+
+I don't need no fake love
+No, I don't need no favor
+I know my time will come
+Just me and my maker (Da, da, da, da-la)
+I'm gonna make the paper (Da, da, da, da-la)
+I'm gonna make the paper (Da, da, da, da-la)
+I'm gonna make the dollar bills (Da, da, da, da-la)
+I'm gonna get paid, yeah
+
+Get the fuck outta my way
+I'm gonna get paid, yeah
+I wanna get paid, yeah
+Just give me my mula-la-la-la
+Get the fuck outta my way
+I'm gonna get paid, yeah
+I'm gonna get paid, yeah
+Just give me my mula-la-la-la
+
+I really like to party
+I really like to party
+I really like to party
+I cannot control my body
+So when this song is starting
+Just cancel all your plans, oh
+It's evident in my dancing
+Moonwalk like Michael Jackson
+
+To the left (Left), to the right (Right)
+To the front with it go, yeah, yeah
+To the left (Left), to the right (Right)
+To the front with it go, yeah, yeah
+I already know just how it goes
+I already know just how it goes
+For the night, I'm riding solo
+Don't want no odo just leave me alone
+I've been waiting, oh, all night long
+For the DJ to play my song
+I dey whine and grind on your booboo
+Somebody please don't call on the po-po
+Turn it up and then drop it low-low
+All this lockdown it done make me ko-lo
+I been waiting, oh, all night long, oh
+Tonight I no go pick my phone
+'Cause I'm so gone, oh
+
+Get the fuck outta my way
+I'm gonna get paid yeah
+I wanna get paid yeah
+Just give me my mula-la-la-la
+Get the fuck outta my way (Da, da, da, da-la)
+I'm gonna get paid, yeah (Da, da, da, da-la)
+I'm gonna get paid, yeah (Da, da, da, da-la)
+Just give me my mula-la-la-la (Da, da, da, da-la)
+
+I really like to party
+I really like to party
+I really like to party
+I cannot control my body
+So when this song is starting
+Just cancel all your plans oh
+It's evident in my dancing
+Moonwalk like Michael Jackson
+
+[Amaarae:]
+I feel nice, there's nothing in my way (My way)
+Shawty wanna fuck but I just want my space (My space)
+In a lambo truck, I'm racing
+Rims still spinnin', I'm pacing
+I don't wanna talk, I'm dancing, dancing
+Straight to the bank, count Benji to Frank, walk out like I'm that bitch
+Put the braids back, movin' like Kelz
+Bad hoes in the back, singin' "That's that shit"
+Yeah, I really do talk like I walk
+Uh, I really been about that life
+Uh, shawty askin' me for advice and I told lil' baby "All I got is the spice for ya"
+
+[Moliy:]
+Get the fuck outta my way
+I'm gonna get paid, yeah
+I wanna get paid, yeah
+
+[Amaarae:]
+Two time knockin', ten man down
+You say you the king, where the crown at nigga?
+I've been muggin' since the first day
+And you couldn't see a nigga on my worst day, no
+Put Moliy on the record for the flex, I was feeling kinda reckless
+Young lil mama's a finesser (Mmm)

@@ -1,0 +1,4 @@
+---
+title: "Anamanaguchi"
+draft: false
+---

@@ -1,0 +1,4 @@
+---
+title: "Amaral"
+draft: false
+---

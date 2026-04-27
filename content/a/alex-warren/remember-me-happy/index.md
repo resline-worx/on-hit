@@ -1,0 +1,55 @@
+---
+title: "Remember Me Happy"
+artist: "Alex Warren"
+tags: "Alex Warren"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+I don't wanna live no more
+I'm a stranger in my body
+I don't recognize the person I've become
+And what am I doing this for?
+I wanna say I'm sorry to the people that I love
+Forgive me for leaving
+I never meant to keep this all from you
+
+Sometimes I wonder would you visit when I'm gone
+Put petals on my stone
+Remember me happy
+Or not even at all
+These thoughts are monsters in my head
+It's a battle I won't win
+This can't go on forever
+Here's hoping it gets better
+
+Something really needs to change
+Yeah I may have lost my family
+But I found myself a new one along the way
+And I know have a tendency
+To let my demons get the best of me
+Oh, the ones I won't let you see
+Oh
+
+Sometimes I wonder would you visit when I'm gone
+Put petals on my stone
+Remember me happy
+Or not even at all
+These thoughts are monsters in my head
+It's a battle I won't win
+This can't go on forever
+Here's hoping it gets better
+
+Oh-oh
+There's so much you can't see
+Oh-oh
+You brought out the best in me
+Oh-oh
+You'll be looking down on me
+Down on me
+Oh, oh
+
+These thoughts are monsters in my head
+It's a battle I won't win
+This can't go on forever
+Here's holding on together

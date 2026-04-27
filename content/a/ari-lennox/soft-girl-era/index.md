@@ -1,0 +1,74 @@
+---
+title: "Soft Girl Era"
+artist: "Ari Lennox"
+tags: "Ari Lennox"
+featuring: ""
+language: "Lyrics"
+draft: false
+---
+Yeah
+Yeah, yeah, yeah, yeah, yeah
+Ya'll know what this is
+
+Baby, that's a million dollars in the mirror (Yeah)
+Step back, get back, can't get near her
+Ain't tryna do nothing but look pretty in here (Yeah)
+Hurry up and put me in my soft girl era
+In first class, I ain't goin' nowhere
+Nails, hair, rent paid, take me somewhere
+Ain't tryna do nothing but look pretty in here
+Hurry up and put me in my soft girl era
+
+Cheap flight, fly high maintenance
+I been busy, take me on a vacation
+Put your money to your mouth, don't say shit
+Servin' cake on the plate, come face it
+I can be your passenger princess
+Move quick for a bitch, add interest
+Don't you tell nobody what you witnessed
+'Cause what we doin' ain't no one's business but you (Ooh)
+What you gon' do? (Ooh)
+I'm savin' all this for you
+It's a hard knock life
+Can you treat me right?
+Show me something new
+
+Baby, that's a million dollars in the mirror
+Step back, get back, can't get near her
+Ain't tryna do nothing but look pretty in here (Yeah)
+Hurry up and put me in my soft girl era (Yeah, yeah)
+In first class, I ain't goin' nowhere
+Nails, hair, rent paid, take me somewhere
+Ain't tryna do nothing but look pretty in here
+Hurry up and put me in my soft girl era
+
+Put me in my soft girl era
+Feeling like my soft girl era
+I can't let you **** me out the bonnet
+Put the top, baby, show me how you want it
+Know I got you hooked like phonics
+Bad as hell and this **** iconic for you
+
+What you gon' do?
+I'm savin' all this for you
+It's a hard knock life
+Can you eat it right?
+Only me on the menu
+
+Baby, that's a million dollars in the mirror
+Step back, get back, can't get near her
+Ain't tryna do nothing but look pretty in here
+Hurry up and put me in my soft girl era
+In first class, I ain't goin' nowhere
+Nails, hair, rent paid, Take me somewhere
+Ain't tryna do nothing but look pretty in here
+Hurry up and put me in my soft girl era
+
+Put me in my soft girl era
+Feeling like my soft girl era
+Ooh
+Put me in my
+Soft girl era
+Dupri, they do be taking off the stress
+I'm tryna throw some ass
+So hurry up and put me in my soft girl era
