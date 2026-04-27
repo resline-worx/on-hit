@@ -1,0 +1,27 @@
+<aside class="sidebar">
+<!-- Recent Posts Widget -->
+<div class="widget"><div class="widget-title">New Lyrics</div>
+{{ range first 10 (where .Site.RegularPages "Params.new" "yes") }}
+<div class="widget-recent-post-item">
+<div class="widget-recent-post-content">
+<a href="{{ .Permalink }}" class="widget-recent-post-title">{{ .Params.artist }} - {{ .Title }}</a>
+</div>
+</div>
+{{ end }}
+</div>
+
+    <!-- Tags Cloud Widget -->
+    
+    <!-- Subscribe Widget -->
+    <div class="widget">
+        <div class="widget-title">Subscribe</div>
+        <p style="color: var(--text-muted); font-size: 0.9rem; margin-bottom: 1rem;">Get the latest updates delivered directly to your inbox.</p>
+        <button class="btn btn-subscribe" style="width: 100%; justify-content: center;">Join Newsletter</button>
+    </div>
+
+    <!-- Ad Widget -->
+    <!-- <div class="ad-placeholder ad-rectangle">
+        <div><span class="ad-label">Advertisement</span>Medium Rectangle</div>
+    </div> -->
+
+</aside>

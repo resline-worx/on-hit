@@ -1,0 +1,19 @@
+{{ define "main" }}
+<!-- Top Leaderboard Ad -->
+<!-- <div class="ad-placeholder ad-leaderboard">
+    <div>
+        <span class="ad-label">Advertisement</span>
+        Google AdSense Leaderboard (728x90)
+    </div>
+</div> -->
+<div class="content-grid"><main class="blog-feed">
+<h3 class="span-col-2">A large collection of lyrics by contemporary artists and timeless classics. New album and song releases</h3>
+{{ range first 10 (where .Site.RegularPages "Params.service" "album") }}
+<h3 style="text-align:center;"><a href="{{ .Permalink }}"><img src="{{ .Permalink }}/img.jpg"><p>{{ .Title }}</p>{{ .Params.artist }}</a></h3>
+{{ end }}
+</main>
+<div id="persistent-sidebar" data-turbo-permanent>
+{{ partial "sidebar.html" . }}
+</div>
+</div>
+{{ end }}

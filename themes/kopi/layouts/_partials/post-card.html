@@ -1,0 +1,50 @@
+{{ $page := .page }}
+{{ $class := .class }}
+{{ $featured := .featured | default false }}
+{{ $image := partial "func/GetImage.html" $page }}
+{{ $loading := .loading | default "lazy" }}
+{{ $priority := .priority | default "auto" }}
+
+{{/* Dynamic Summary Length based on Title Length */}}
+{{ $titleLen := len $page.Title }}
+{{ $textOnlyLen := 300 }}
+{{ if gt $titleLen 70 }}
+    {{ $textOnlyLen = 220 }}
+{{ else if gt $titleLen 35 }}
+    {{ $textOnlyLen = 260 }}
+{{ end }}
+
+<article class="post-card {{ if not $image }}text-only{{ end }} {{ $class }}">
+    {{ if $image }}
+        {{ if eq $image.MediaType.SubType "svg" }}
+            <img src="{{ $image.Permalink }}" class="post-image" alt="{{ $page.Title }}" loading="{{ $loading }}" fetchpriority="{{ $priority }}" decoding="async" width="{{ $image.Width }}" height="{{ $image.Height }}">
+        {{ else }}
+            {{ $tiny_w := $image.Fill "400x250 smart webp" }}
+            {{ $small_w := $image.Fill "600x375 smart webp" }}
+            {{ $medium_w := $image.Fill "800x500 smart webp" }}
+            {{ $large_w := $image.Fill "1200x750 smart webp" }}
+            
+            {{ $tiny := $image.Fill "400x250 smart" }}
+            {{ $small := $image.Fill "600x375 smart" }}
+            {{ $medium := $image.Fill "800x500 smart" }}
+            {{ $large := $image.Fill "1200x750 smart" }}
+            
+            {{ $sizes := "(max-width: 768px) calc(100vw - 2rem), 50vw" }}
+            {{ if $featured }}
+                {{ $sizes = "(max-width: 768px) calc(100vw - 2rem), 100vw" }}
+            {{ end }}
+            <picture>
+                <source srcset="{{ $tiny_w.Permalink }} 400w, {{ $small_w.Permalink }} 600w, {{ $medium_w.Permalink }} 800w, {{ $large_w.Permalink }} 1200w" type="image/webp" sizes="{{ $sizes }}">
+                <img src="{{ $medium.Permalink }}" srcset="{{ $tiny.Permalink }} 400w, {{ $small.Permalink }} 600w, {{ $medium.Permalink }} 800w, {{ $large.Permalink }} 1200w" sizes="{{ $sizes }}" class="post-image" alt="{{ $page.Title }}" loading="{{ $loading }}" fetchpriority="{{ $priority }}" decoding="async" width="{{ $medium.Width }}" height="{{ $medium.Height }}">
+            </picture>
+        {{ end }}
+    {{ end }}
+    <div class="post-content">
+      <h2 class="post-title" {{ if $featured }}style="font-size: 2.5rem; letter-spacing: -0.03em;"{{ end }}><a href="{{ $page.Permalink }}">{{ $page.Title }}</a></h2>
+        {{ if not $image }}
+        <p class="post-excerpt" {{ if $featured }}style="font-size: 1.2rem; line-height: 1.6;"{{ end }}>
+            {{ $page.Content | plainify | truncate $textOnlyLen }}
+        </p>
+        {{ end }}
+</div>
+</article>
